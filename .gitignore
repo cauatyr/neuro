@@ -1,0 +1,18 @@
+# Segredos / credenciais — NUNCA commitar
+.env
+cookies.json
+*.session
+session-*
+
+# Saída de dados (pesado / conteúdo de terceiros)
+posts/
+batches/
+parts/
+*.log
+download_log*.txt
+
+# Python
+__pycache__/
+*.pyc
+.venv/
+venv/
