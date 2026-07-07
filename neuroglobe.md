@@ -2,9 +2,6 @@
 
 Transcrição fiel do texto contido nas imagens dos posts do perfil [@neuroglobe](https://www.instagram.com/neuroglobe/), em ordem cronológica.
 
-- Cobertura atual: **lotes 000–044** — **540 posts** transcritos.
-- Pendentes: lotes **045–050** (últimos ~6 lotes do acervo).
-
 ---
 
 ## 2024-10-17 17:34 UTC
@@ -14892,3 +14889,1975 @@ But most people never support these systems in a meaningful way. Diets high in p
 The brain is something you must actively defend. When protective systems are supported, the brain becomes more resilient to both internal and external stress. When they're not, the damage doesn't stop, it accumulates silently, shaping how your brain performs over time.
 
 If you're interested in optimizing your brain health further, comment "MUSHROOM" and we'll send you our recommended source of high quality functional supplements with proven cognitive benefits.
+
+## 2026-05-20 16:44 UTC
+
+**Slide 1:**
+THE HARDEST FORM OF CHANGE ISN'T FIGHTING URGES OR BREAKING HABITS, IT'S LETTING YOUR BRAIN BE WRONG ABOUT WHO YOU ARE
+
+**Slide 2:**
+Neuroscience shows the brain holds a model of you the same way it holds a model of the room you're in, as a prediction it constantly checks reality against. When you act outside that model, the brain registers it as an error and works to correct it. Usually by pulling you back to the old behavior.
+
+**Slide 3:**
+This is why change feels destabilizing even when it's obviously good. The discomfort you're feeling isn't moral resistance or laziness. It's the same alarm the brain fires when a familiar room is suddenly rearranged. Something it predicted to be there isn't.
+
+**Slide 4:**
+The practical move is to expect this. Most people interpret the alarm as a sign they're doing something wrong. They aren't. They're doing something the old model didn't predict, which is the definition of growth.
+
+**Slide 5:**
+The brain only updates its model after enough prediction errors stack up. One workout doesn't change who the brain thinks you are. Twenty workouts in a row, on days you didn't want to, eventually do. The model breaks before it rebuilds.
+
+**Slide 6:**
+What looks like self-sabotage near the edge of growth is often this exact process. The brain pulling you toward what it predicted, because the new behavior hasn't been confirmed enough times to become the prediction. Once it does, the pull reverses direction.
+
+**Slide 7:**
+Real change isn't fighting yourself. It's letting an outdated version of you be wrong about you, long enough that the brain has to update its prediction.
+
+Follow @neuroglobe to learn more about your brain.
+
+## 2026-05-20 17:30 UTC
+
+**Slide 1:**
+TRYING TO POWER THROUGH BRAIN FOG WITH MORE CAFFEINE WORKS AGAINST THE EXACT SYSTEM YOU'RE TRYING TO FIX. HERE'S WHAT YOUR BRAIN ACTUALLY NEEDS
+
+**Slide 2:**
+Neuroscience shows brain fog isn't a signal your brain needs more stimulation. It's a signal that the systems behind your focus are running on depleted resources. Caffeine doesn't refill those resources, it overrides the fatigue signal designed to protect them.
+
+**Slide 3:**
+Mental clarity depends on three underlying systems: cellular energy production in your neurons, neurotransmitter availability, and inflammation control. When any of these is compromised, stimulants can mask the fog temporarily, but the deeper problem keeps building behind it.
+
+**Slide 4:**
+This is why caffeine tolerance escalates so fast. The brain isn't getting fixed by stimulation, it's getting better at ignoring its own warning signs. Within weeks, the same dose just holds you at baseline instead of clearing anything.
+
+**Slide 5:**
+What actually restores clarity is rebuilding those underlying systems: mitochondrial output in neurons, neurotrophic signaling that maintains focus circuits, and reduced inflammation that disrupts brain communication. These don't deliver a 20-minute hit. They make your brain capable of clarity without being forced into it.
+
+**Slide 6:**
+Functional mushrooms appear repeatedly in this research because they target exactly those systems. Cordyceps for cellular energy, Lion's Mane for neurotrophic maintenance, and adaptogenic compounds that lower inflammatory load over time. The mechanism is repair, not stimulation.
+
+**Slide 7:**
+If you're rebuilding your focus from the system level instead of the stimulant level, @feelyvb's Align blend pairs Lion's Mane, Himematsutake, and Cordyceps at meaningful doses, formulated for sustained clarity without caffeine. The kind of input the science actually supports.
+
+## 2026-05-21 03:54 UTC
+
+**Slide 1:**
+READING FICTION PHYSICALLY BUILDS THE BRAIN REGIONS USED FOR UNDERSTANDING OTHER PEOPLE, AND NON-FICTION DOESN'T
+
+**Slide 2:**
+Neuroscience shows fiction and non-fiction activate different parts of the brain, even when they're equally well-written. Non-fiction recruits the systems that process facts and arguments. Fiction recruits those, and adds the social brain, the network the brain uses to model other people's minds.
+
+**Slide 3:**
+This is why readers of literary fiction consistently outperform non-readers on tests of empathy, theory of mind, and the ability to read emotional cues from faces. The mechanism isn't mystical. They've spent thousands of hours practicing the act of inferring what other people are thinking, using characters as the training data.
+
+**Slide 4:**
+What this means practically is that fiction isn't a less serious form of reading. It's a different training program. Non-fiction makes you smarter about the world. Fiction makes you smarter about the people in it. Both are useful.
+
+**Slide 5:**
+There's a quality threshold. Lighter genre fiction shows much smaller effects. The strong findings cluster around literary fiction, books where characters are layered, motivations are implicit, and the reader has to work to figure out what someone meant. The harder the social inference, the better the workout.
+
+**Slide 6:**
+This also reframes a common worry. People who read mostly fiction sometimes feel guilty that they "should" be reading more business books or biographies. The science doesn't agree. They're getting a kind of training the other group isn't.
+
+**Slide 7:**
+Non-fiction teaches you what to think. Fiction teaches you what other people are thinking. The second skill is the one that decides most of your relationships, careers, and choices.
+
+Follow @neuroglobe to learn more about your brain.
+
+## 2026-05-22 23:26 UTC
+
+**Slide 1:**
+THE NEUROSCIENCE OF FOLLOWING THROUGH: WHY SOME BRAINS CAN START ANYTHING BUT CAN'T FINISH
+
+**Slide 2:**
+Neuroscience shows starting and finishing are run by completely different brain systems. Starting fires off a quick burst of dopamine, your brain rewarding the promise of a new outcome. Finishing requires a slower, quieter circuit that has to override boredom, friction, and the appeal of starting something else.
+
+**Slide 3:**
+This is why some of the most ambitious, hardest-working people seem to have a thousand half-finished projects. They aren't lazy. Their reward system has been trained to fire on novelty, not completion. The high comes from the new idea, not the follow-through.
+
+**Slide 4:**
+The anterior mid-cingulate cortex, the part that activates when you override resistance, grows when used, shrinks when avoided. People who consistently finish difficult things have literally built more of this region over time.
+
+**Slide 5:**
+The practical lever is small. The moment the project stops being exciting is the moment your brain is actually being trained. Pushing through one boring stretch teaches the brain more than starting ten exciting projects.
+
+**Slide 6:**
+This reframes the productivity question. The problem isn't motivation, focus, or even time. It's that the modern world serves your brain an unlimited buffet of new starts, every notification, every feed, every idea, while quietly starving the part that finishes things.
+
+**Slide 7:**
+The skill that compounds in your life isn't starting. It's not quitting. Every time you stay one beat longer than you wanted to, the brain region responsible for finishing literally gets bigger.
+
+Follow @neuroglobe to learn more about your brain.
+
+## 2026-05-25 22:43 UTC
+
+**Slide 1:**
+PSYCHOLOGY SAYS DISCIPLINE ISN'T DOING WHAT YOU SAID YOU WOULD, IT'S BECOMING SOMEONE WHO WOULD NEVER NOT DO IT
+
+**Slide 2:**
+Psychology shows the brain doesn't track promises. It tracks identity. The reason "willpower" runs out is that every act of self-control is a conscious override, and overrides are metabolically expensive. The brain can only do them so many times a day before quietly giving up.
+
+**Slide 3:**
+What doesn't run out is acting from who you believe you are. A person who sees themselves as a runner doesn't override anything to go for a run. There's no conflict to manage. The behavior and the self-concept are the same thing.
+
+**Slide 4:**
+This is why discipline as a moral category is misleading. People who appear "highly disciplined" aren't grinding through internal resistance. They've collapsed the gap between intention and identity. The behavior is automatic because the question of doing it never comes up.
+
+**Slide 5:**
+The practical move is to stop describing yourself by your goals and start describing yourself by your actions. "Trying to read more" is fragile. "I read every night" is stable. The first leaves room for negotiation. The second doesn't.
+
+**Slide 6:**
+The brain's habit machinery follows the language you use about yourself. Identity statements become priors, predictions the brain defends. Goal statements stay external, predictions the brain treats as optional.
+
+**Slide 7:**
+Real discipline isn't repeated effort. It's the moment the effort isn't required anymore, because the person doing it isn't the same person who used to negotiate with themselves.
+
+Follow @neuroglobe to learn more about your brain.
+
+## 2026-05-26 18:19 UTC
+
+**Slide 1:**
+TRYING TO THINK YOUR WAY INTO A NEW IDENTITY WORKS AGAINST THE ONLY SYSTEM THAT CAN ACTUALLY INSTALL IT
+
+**Slide 2:**
+Neuroscience shows the brain doesn't believe what you tell it. It believes what you repeatedly do. The system that holds your self-concept is downstream of behavior, not upstream of it, which means thinking new thoughts about yourself, on their own, almost never produces change.
+
+**Slide 3:**
+Affirmations, journaling, and self-talk feel productive because they engage the brain's verbal-reasoning system. But the verbal system isn't where identity is stored. Identity sits in the same system that holds learned behaviors, and that system only updates when behavior actually happens.
+
+**Slide 4:**
+This is why thinking "I'm a confident person" rarely changes anything, but acting once in a way that requires confidence often does. The brain isn't watching your inner monologue. It's watching the data you give it through what you do.
+
+**Slide 5:**
+The practical lever is to flip the order. Don't wait to feel like the person you're becoming before you act like them. Act first, in the smallest possible version, and let the feelings be downstream of the evidence.
+
+**Slide 6:**
+This is also why "fake it till you make it" works better than its critics think, and worse than its fans think. It works because behavior installs identity. It works worse than expected because the behavior has to be specific, repeated, and real, not performed.
+
+**Slide 7:**
+You don't think your way into a new version of yourself. You do small things, repeatedly, that the old version wouldn't have done. The brain updates from there.
+
+Comment "INSTALL" and we'll send you the 4 conditions a behavior has to meet to actually rewire who you think you are.
+
+## 2026-05-27 00:37 UTC
+
+**Slide 1:**
+ANNOUNCING YOUR GOALS LITERALLY DEACTIVATES THE BRAIN SYSTEM THAT DRIVES YOU TO COMPLETE THEM
+
+**Slide 2:**
+Neuroscience shows the brain treats telling people about a goal as partial completion of the goal. The same reward chemistry that fires when you finish a task fires when you describe yourself as someone working toward it. The system that drives the actual work gets a smaller signal to fire later.
+
+**Slide 3:**
+This is one of the cleaner findings in the field, replicated across multiple studies. Participants who shared their goals publicly were less likely to follow through than participants who kept the same goal private. The brain doesn't seem to know the difference between announcing progress and making it.
+
+**Slide 4:**
+What this means in practical terms is simple. Public commitment can substitute for action. The praise, validation, and social approval that come from declaring a goal feed the brain enough of the reward signal that the urge to actually do the work drops.
+
+**Slide 5:**
+There's a useful exception. Public accountability (being checked on, having to report) works in the opposite direction, because the brain experiences not following through as a social cost. The mistake is confusing the two. Announcing a goal isn't accountability. It's an applause line.
+
+**Slide 6:**
+The most disciplined people in any field tend to stay quiet about what they're working on until it's done. Not because they're humble, because they've intuitively learned that telling people about it leaks the energy required to do it.
+
+**Slide 7:**
+Quiet discipline isn't a personality trait. It's the strategic move the brain rewards. The longer you stay silent about what you're building, the more pressure the system keeps pushing you toward actually building it.
+
+Follow @neuroglobe to learn more about your brain.
+
+## 2026-05-27 17:49 UTC
+
+**Slide 1:**
+PSYCHOLOGY SAYS THE RAREST FORM OF FOCUS ISN'T LONGER SESSIONS OR FEWER NOTIFICATIONS, IT'S A BRAIN THAT DOESN'T NEED TO BE STIMULATED TO STAY ENGAGED
+
+**Slide 2:**
+Psychology shows that the deepest forms of focus aren't built through willpower or environmental control. They emerge from a brain that maintains steady attention without needing constant external input. This is a structural capacity, not a discipline.
+
+**Slide 3:**
+Most modern focus advice targets the wrong variable. Cutting distractions, time-blocking, and dopamine fasting can reduce the noise, but they don't change the underlying system that decides whether your brain can hold attention in the first place.
+
+**Slide 4:**
+That underlying system depends on three things: stable cellular energy in your neurons, neurotransmitter regulation that prevents attention from drifting, and low inflammatory load that lets brain regions communicate cleanly. When these are intact, focus stops feeling like a fight.
+
+**Slide 5:**
+This is why some people can read for hours without fidgeting and others can't get through one chapter, even in identical environments. The difference isn't motivation. It's the state of the systems that produce sustained attention before any external input arrives.
+
+**Slide 6:**
+Compounds that support these systems show up consistently in the research: Cordyceps for mitochondrial energy, Lion's Mane for the neurotrophic signaling that maintains attention circuits, and adaptogens that stabilize the stress response that fragments focus. They don't force attention. They reduce the friction that makes attention feel forced.
+
+Follow @neuroglobe and @feelyvb to learn more about the science behind sustained brain performance.
+
+## 2026-05-28 01:43 UTC
+
+**Slide 1:**
+THE RAREST FORM OF EMOTIONAL SAFETY ISN'T TRUST OR VULNERABILITY, IT'S THE ABSENCE OF SMALL UNPREDICTABLE THREATS
+
+**Slide 2:**
+Neuroscience shows the body's threat-detection system is more sensitive to small, repeated, unpredictable signals than to big, rare, dangerous ones. A single argument doesn't dysregulate a nervous system. A pattern of unpredictable tone, withdrawn affection, or unspoken disapproval over weeks does.
+
+**Slide 3:**
+This is why people in relationships that "look fine" can have nervous systems that are clearly not fine. There's no specific event to point at. There's just a low, constant background of not knowing what version of the other person is going to show up. The body files that as chronic threat.
+
+**Slide 4:**
+Emotional safety isn't built through big gestures of trust or vulnerability. It's built through predictability, same tone, same warmth, same access, across moods, days, and stresses. The body cares more about stability than intensity.
+
+**Slide 5:**
+This is also why some people feel safer with calmer partners than with more loving ones. Affection that comes and goes activates the body's prediction system more than it soothes it. Steadiness, even at lower intensity, lets the alarm finally turn off.
+
+**Slide 6:**
+The reverse is also true. You become a safer person to others by becoming more predictable, not by getting better at apologies. Small consistency over months changes a nervous system in ways grand gestures never will.
+
+**Slide 7:**
+Safety isn't the absence of conflict. It's the absence of confusion. The body only relaxes when it stops having to guess.
+
+Comment "AUDIT" and we'll send you a 7-question audit that shows you which people in your life are actually draining your nervous system.
+
+## 2026-05-28 19:36 UTC
+
+**Slide 1:**
+DISCOMFORT DURING MENTAL GROWTH AND DISCOMFORT DURING MENTAL DECLINE FEEL IDENTICAL. HERE'S HOW YOUR BRAIN TELLS THEM APART
+
+**Slide 2:**
+Neuroscience shows the brain uses the same alarm circuits for both genuine threat and for prediction error. The body can't tell, on its own, whether the discomfort you're feeling means you're falling apart or finally changing. They both fire the same warning.
+
+**Slide 3:**
+This is the single most common reason people abandon real change. The discomfort feels indistinguishable from going backward, so they treat it as a signal to retreat. The brain learns the discomfort means "stop," and the next attempt fails sooner.
+
+**Slide 4:**
+The difference between the two states is subtle but consistent. Growth discomfort tends to be forward-pointing, it shows up around action, choice, or visibility, and it fades once the action is taken. Decline discomfort is backward-pointing, it shows up around old patterns, old people, old emotional states, and it deepens the longer you stay in them.
+
+**Slide 5:**
+You can tell the difference by asking what the discomfort wants. If it wants to make you smaller, slower, less visible, and less choosing, that's regression. If it wants to make you act, decide, speak, or move, that's growth. The body's signal is the same. The direction of the pull isn't.
+
+**Slide 6:**
+Once you can tell them apart, the relationship to discomfort flips. Growth discomfort becomes a navigation aid. Regression discomfort becomes a warning. The same physiological state stops being confusing, because you've learned which version of itself it is.
+
+**Slide 7:**
+The skill isn't tolerating more discomfort. It's reading the kind you're in. The body doesn't make the call. Your interpretation of the signal does.
+
+Follow @neuroglobe to learn more about your brain.
+
+## 2026-05-29 18:40 UTC
+
+**Slide 1:**
+WHAT ACTUALLY HAPPENS INSIDE YOUR BRAIN WHEN YOU FALL IN LOVE
+
+**Slide 2:**
+YOUR REWARD SYSTEM CATCHES FIRE FIRST
+When you fall in love, your brain releases the same chemical hit it gives an addict using their drug. Every text, every glance, every thought of them pulls another dose. Your brain has identified a new source of reward, and it's hungry for more.
+
+**Slide 3:**
+THE BRAIN STOPS SEEING A PERSON AND STARTS SEEING A TARGET
+Early love isn't experienced as an emotion. It's experienced as a craving. Your entire focus reorganizes around getting closer to one specific person. This is the same circuitry that drives addiction, which is why "I need them" is closer to the truth than "I love them" in the first phase.
+
+**Slide 4:**
+SEROTONIN CRASHES TO OCD-LEVEL LOWS
+One of the cleanest findings in the field is that serotonin in newly in-love brains drops to the same levels measured in people with OCD. This is why you can't stop thinking about them. The intrusive thoughts aren't romance, they're a temporary neurochemical state.
+
+**Slide 5:**
+THE PART OF YOUR BRAIN THAT JUDGES THEM GOES QUIET
+Brain imaging shows the system that normally evaluates social risk and spots flaws goes measurably quieter in early love. You're not ignoring red flags, you're temporarily less capable of seeing them. "Love is blind" isn't a metaphor; it's a real, time-limited deactivation of your judgment system.
+
+**Slide 6:**
+YOUR STRESS SYSTEM RUNS FULL-THROTTLE ALONGSIDE THE EUPHORIA
+The racing heart, the sleeplessness, the lost appetite, the constant low-grade anxiety, these aren't side effects of love. They're the same stress chemistry your body runs in actual danger. Early love is a stress state your brain happens to experience as pleasure.
+
+**Slide 7:**
+EVENTUALLY, DOPAMINE HANDS THE WHEEL TO OXYTOCIN
+After 6 to 12 months, the obsessive phase ends, not because the love ended, but because the brain switched systems. The new one runs on touch, presence, and sustained closeness, and it's quieter, slower, and far more durable. This is why long love feels different in the body than new love.
+
+**Slide 8:**
+FOLLOW US TO LEARN MORE ABOUT YOUR BRAIN
+
+## 2026-05-31 17:05 UTC
+
+**Slide 1:**
+THE MOST POWERFUL FORM OF FOCUS ISN'T DEEP WORK OR MEDITATION, IT'S THE WILLINGNESS TO BE BORED WITHOUT REACHING FOR INPUT
+
+**Slide 2:**
+Neuroscience shows focus isn't a single skill. It's the by-product of a deeper one: the ability to tolerate the absence of stimulation long enough for the brain to settle into the work. If you can't sit with boredom, you can't sit with anything.
+
+**Slide 3:**
+This is why most productivity advice fails. The problem isn't time blocks or notifications. It's that the modern brain has been trained, hundreds of times a day, that the smallest dip in interest can be instantly filled with new input. Focus stopped being possible because boredom stopped being tolerable.
+
+**Slide 4:**
+Try sitting somewhere, without a phone, without music, without a book, for five minutes. The discomfort that shows up almost immediately is the exact muscle that focus runs on. Strengthening it transfers to every other form of attention.
+
+**Slide 5:**
+What you're training isn't concentration. It's the part of the brain that can be in the absence of reward without panicking. Once that part exists, focus on a difficult task becomes much less effortful. The hard part wasn't the task, it was the underlying intolerance.
+
+**Slide 6:**
+This is why a generation that's never been bored is also a generation that struggles to read for an hour, listen without interrupting, or stay in a slow conversation. None of these are focus problems. They're boredom-tolerance problems wearing a focus mask.
+
+**Slide 7:**
+Focus isn't a feature you install. It's what remains when you stop running from being unstimulated.
+
+Comment "FOCUS" and we'll send you a 7-day protocol that completely rebuilds the brain's attention system.
+
+## 2026-06-01 02:57 UTC
+
+**Slide 1:**
+WALKING MORE THAN 5,000 STEPS A DAY IS LINKED TO 7 YEARS SLOWER BRAIN AGING IN ADULTS SUSCEPTIBLE TO ALZHEIMER'S
+NATURE MEDICINE, DOI: 10.1038/S41591-025-03955-6
+SWIPE
+
+**Slide 2:**
+In a 14-year observational study of nearly 300 older adults already showing the earliest brain changes of Alzheimer's, those walking 5,000 to 7,500 steps a day showed cognitive decline 7 years slower than less active participants.
+
+**Slide 3:**
+Walking didn't reduce amyloid, which is the protein most associated with Alzheimer's. It slowed the buildup of tau, which is the second protein, in a key memory region. Movement protected the brain by slowing the second wave of damage, not the first.
+
+**Slide 4:**
+At the low end, the gradient is steeper. Just 3,000 steps was linked to about 3 years of slower decline. The biggest jump comes from moving people from doing very little to doing something. That sits inside what a 25-minute daily walk provides. The leverage point isn't training harder. It's not being sedentary.
+
+**Slide 5:**
+The amount of movement that protects the aging brain is much lower than the wellness industry implies. For the least active, the first 3,000 steps may be the most valuable ones they ever take.
+
+Follow @neuroglobe to learn more about brain health.
+
+## 2026-06-01 16:22 UTC
+
+**Slide 1:**
+THE HOUR BEFORE YOU FALL ASLEEP DETERMINES HOW WELL YOUR BRAIN CLEARS OUT TOXINS OVERNIGHT, AND MOST PEOPLE WASTE IT
+SWIPE
+
+**Slide 2:**
+Neuroscience shows the brain has a nightly cleaning system known as the glymphatic system, that flushes out metabolic waste while you sleep. The efficiency of this cleaning depends on the state you enter sleep in. A relaxed, parasympathetic body produces deeper, longer cleaning cycles. An activated, sympathetic body produces fragmented, shallower ones.
+
+**Slide 3:**
+What this means is that the same 8 hours of sleep can deliver very different brain outcomes depending on the hour before you fell asleep. Scrolling, intense content, late arguments, late caffeine, these don't just shorten sleep. They shift the body into a state where the cleaning itself becomes less effective.
+
+**Slide 4:**
+The way to optimize this isn't sleep duration. It's the descent. The hour before sleep is the runway, and what you put on the runway decides what kind of night the brain gets. Calm, dim, quiet, low-input, these aren't aesthetic choices, they're inputs into the cleaning system.
+
+**Slide 5:**
+Specifically, the cleaning happens most aggressively during deep slow-wave sleep, which mostly happens in the first third of the night. If the first third is fragmented by an activated nervous system, the brain doesn't get the full wash, regardless of how many hours you log afterward.
+
+**Slide 6:**
+This also reframes what "good sleep" means. A long sleep on an activated body is worse than a slightly shorter sleep on a calm one. People who sleep eight hours and wake up foggy are often paying for the hour before they got in bed.
+
+**Slide 7:**
+The hour before sleep is arguably the most expensive hour of your night. What you put in it is what your brain gets to do, or doesn't get to do.
+
+Comment "SLEEP" and we'll send you the 5 worst and 5 best pre-sleep habits that affect how well your brain cleans itself overnight.
+
+## 2026-06-02 00:01 UTC
+
+**Slide 1:**
+WHAT ACTUALLY HAPPENS INSIDE YOUR BRAIN WHEN YOU TAKE CREATINE
+SWIPE
+
+**Slide 2:**
+THE FIRST 24 HOURS
+THE DOSE IS ABSORBED AND PEAKS IN YOUR BLOODSTREAM WITHIN AN HOUR, BUT ALMOST NONE OF IT HAS REACHED YOUR BRAIN YET. THE ONLY REAL SHIFT ON DAY ONE IS A TINY EMERGENCY ENERGY BUFFER YOUR NEURONS DIDN'T HAVE YESTERDAY. MOST PEOPLE FEEL NOTHING AND THAT'S ACCURATE, BECAUSE THE EFFECTS HAVEN'T STARTED.
+SWIPE
+
+**Slide 3:**
+DAYS 2 TO 7
+YOUR MUSCLE STORES START FILLING FAST, BUT YOUR BRAIN STORES BARELY MOVE. THEY TAKE 10 TO 20 TIMES LONGER TO LOAD THAN MUSCLE. ANYTHING YOU FEEL THIS WEEK IS MOSTLY WATER SHIFTING INTO YOUR CELLS, NOT COGNITIVE CHANGE. THE REAL SHIFT HASN'T BEGUN.
+SWIPE
+
+**Slide 4:**
+WEEK 2
+THE FIRST REAL CHANGE SHOWS UP HERE, AND PRIMARILY WHEN YOU'RE STRESSED. AFTER A BAD NIGHT'S SLEEP, A HARD WORKOUT, OR A LONG MENTAL DAY, YOUR THINKING HOLDS TOGETHER BETTER THAN IT USED TO IN THE SAME STATE. CREATINE IS ACTING AS AN EMERGENCY BATTERY FOR THE BRAIN. IT SHOWS UP WHEN THE REST OF YOUR ENERGY SYSTEMS ARE TAXED.
+SWIPE
+
+**Slide 5:**
+WEEKS 3 TO 4
+NOW THE EFFECTS START SHOWING UP EVEN WHEN YOU'RE NOT PUSHING YOURSELF. REACTION TIME GETS FASTER, THE MID-AFTERNOON BRAIN FOG LIFTS EARLIER, AND WORKING MEMORY MEASURABLY EXPANDS. YOUR BRAIN IS RUNNING ON A FULLER TANK.
+SWIPE
+
+**Slide 6:**
+DAYS 30 TO 60
+BRAIN STORES ARE NEAR FULL. THINKING UNDER FATIGUE IS NOTICEABLY EASIER, MENTAL RECOVERY AFTER HARD WORK IS FASTER, AND THE FLOOR OF YOUR WORST-THINKING DAYS HAS LIFTED. FOR PEOPLE PRONE TO LOW MOOD, THIS IS ALSO WHERE THE ANTIDEPRESSANT-ADJACENT EFFECTS START SHOWING UP IN THE DATA.
+SWIPE
+
+**Slide 7:**
+DAY 60 AND BEYOND
+BRAIN STORES ARE NOW FULLY SATURATED AND STAY THAT WAY AS LONG AS YOU KEEP DOSING. THE BENEFITS STOP BEING SOMETHING YOU NOTICE ON INDIVIDUAL DAYS AND BECOME SOMETHING YOU QUIETLY DEPEND ON. AT THIS POINT CREATINE ISN'T A SUPPLEMENT THAT DOES SOMETHING, IT'S A SUPPLEMENT THAT PROTECTS SOMETHING.
+SWIPE
+
+**Slide 8:**
+FOLLOW US TO LEARN MORE ABOUT YOUR BRAIN
+
+## 2026-06-02 16:26 UTC
+
+**Slide 1:**
+6 WEEKS OF MAGNESIUM THREONATE SUPPLEMENTATION MADE ADULTS' BRAIN FUNCTION 7.5 YEARS YOUNGER
+FRONTIERS IN NUTRITION, DOI: 10.3389/FNUT.2025.1729164
+SWIPE
+
+**Slide 2:**
+In a six-week controlled trial of 100 healthy adults, those taking 2 grams of magnesium L-threonate daily showed a 7.5-year reduction in estimated cognitive brain age. The score combined working memory, episodic memory, and reaction time.
+
+**Slide 3:**
+Magnesium L-threonate is not the same as glycinate, citrate, or oxide. It's the specific form developed to cross the blood-brain barrier. Other forms support muscle and nerve function. The brain itself doesn't reliably get the dose.
+
+**Slide 4:**
+The biggest shifts were in reaction time and working memory. These domains decline first with age. A six-week shift in either is a meaningful signal, not noise. Subjective sleep also improved, as participants reported feeling more rested.
+
+**Slide 5:**
+The deeper point is who responded. These were young, healthy adults, not the population usually targeted by brain-supplement marketing. Cognitive movement in healthy people within six weeks is the strongest signal in the data.
+
+**Slide 6:**
+Most magnesium supplements act on the body more than the brain. This specific form acts primarily on the brain. That distinction is the entire reason the trial produced a result worth paying attention to.
+
+Comment "STUDY" and we'll send you our full breakdown of the study.
+
+## 2026-06-02 23:07 UTC
+
+**Slide 1:**
+NEUROSCIENCE SAYS TRYING TO FORGIVE SOMEONE BEFORE YOUR NERVOUS SYSTEM IS READY ACTUALLY DEEPENS THE WOUND
+SWIPE
+
+**Slide 2:**
+Neuroscience shows premature forgiveness behaves the opposite of how people expect. When the body is still in a defensive state, telling yourself you've moved on doesn't quiet the alarm, it suppresses the signal while leaving the underlying system on full alert. The wound stays open underneath the language.
+
+**Slide 3:**
+This is why people who "forgive" too fast often find the same hurt resurfacing months or years later, sometimes more intensely. The brain hasn't actually processed it. It's just been told not to talk about it. Suppression is not integration.
+
+**Slide 4:**
+The body has its own timeline for what's done. It needs three things: the experience to be acknowledged, the threat to genuinely be over, and enough time without harm for the alarm to wind down on its own. Skipping any of these keeps the loop live.
+
+**Slide 5:**
+The question isn't whether to forgive. It's whether the system has finished what it needed to finish first. Sometimes that means time, sometimes distance, sometimes new evidence that the harm won't repeat. Sometimes it means letting yourself stay angry without being told that's a flaw.
+
+**Slide 6:**
+True forgiveness, when it arrives, doesn't feel like an act of will. It feels like noticing the alarm has gone quiet on its own. You didn't decide to be over it. The body finished processing, and the charge dropped.
+
+**Slide 7:**
+Forgiveness isn't a moral move. It's a biological state. Forcing it from the top doesn't speed it up it makes the wound harder to find later.
+
+Follow @neuroglobe to learn more about your brain.
+
+## 2026-06-03 16:27 UTC
+
+**Slide 1:**
+CHECKING YOUR PHONE FIRST THING IN THE MORNING SABOTAGES YOUR PREFRONTAL CORTEX FOR THE REST OF THE DAY
+SWIPE
+
+**Slide 2:**
+Neuroscience shows the brain wakes up in a specific state: high in the chemistry of focus and low in the chemistry of reactivity, and the first inputs of the morning either preserve that state or collapse it. The phone, with its mix of social input, urgent content, and unpredictable stimulation, is one of the worst possible first inputs.
+
+**Slide 3:**
+The prefrontal cortex, the part of the brain responsible for focus, decisions, and willpower, comes online slowly in the morning. Hitting it with high-stimulation input before it's fully active trains the brain to expect that level of input all day. The result is a day where focus feels impossibly hard.
+
+**Slide 4:**
+The cost is bigger than people realize. Studies on first-input effects have shown that the first thirty minutes of the morning disproportionately shape the entire day's mental performance. A bad first thirty often can't be repaired by good behavior at noon.
+
+**Slide 5:**
+Replace the first thirty minutes with something low-stimulation: water, daylight, a slow walk, even just sitting. The brain uses that window to come online properly, and the rest of the day inherits the benefit.
+
+**Slide 6:**
+This isn't a productivity hack. It's biological maintenance. The same morning routine that "high performers" have been advocating for has a real mechanism behind it, they're not more disciplined, they're just not corrupting the most leveraged thirty minutes of the day.
+
+**Slide 7:**
+The phone in the first ten minutes of waking isn't a small thing. It's the input that decides what kind of brain you'll have for the next sixteen hours.
+
+Comment "MORNING" and we'll send you the 5 most important morning inputs your brain needs to be fully optimized for the rest of the day.
+
+## 2026-06-03 17:12 UTC
+
+**Slide 1:**
+MENTAL EXHAUSTION AND BRAIN INFLAMMATION FEEL IDENTICAL, AND TREATING THE WRONG ONE WILL MAKE THE OTHER WORSE
+SWIPE
+
+**Slide 2:**
+Neuroscience shows both mental exhaustion and brain inflammation produce the same surface symptoms: slow thinking, mental fatigue, foggy memory, lower mood. But research now distinguishes them as biologically separate states, and the wrong intervention can deepen the actual problem.
+
+**Slide 3:**
+Mental exhaustion is a transient depletion of neurotransmitters and cellular energy after sustained cognitive demand. It clears with rest, sleep, and nutrition. Brain inflammation is a chronic state of immune activation in the central nervous system that doesn't clear with sleep, and often gets worse with the wrong response.
+
+**Slide 4:**
+The difference is recovery. Mental exhaustion improves within 24 hours of real rest. If your brain still feels foggy after a full weekend of sleep, low stress, and good food, the problem isn't exhaustion, it's most likely inflammation.
+
+**Slide 5:**
+Inflammation in the brain doesn't feel like inflammation in the body. There's no swelling, no heat. Just slower processing, irritability, low motivation, and reduced clarity, often misread as burnout or laziness, and the wrong response (more caffeine, more pushing through) makes it worse.
+
+**Slide 6:**
+What actually reduces neuroinflammation is consistent low-grade support over weeks, not stimulation. Natural compounds with the strongest evidence include Chaga and Reishi Mushrooms, both studied across decades of research for their effects on the brain's defensive systems.
+
+**Slide 7:**
+If your fatigue isn't responding to rest, it likely isn't exhaustion you're dealing with. @feelyvb's Boost blend stacks Chaga, Reishi, and Turkey Tail at meaningful doses, formulated for the slow underlying recovery the inflammatory state actually requires.
+
+[imagem: embalagem do produto yvb boost Powder — 75 servings, "A daily ally in strength, resilience, and defense.", 944 mg Turkey Tail Mushroom, 678 mg Antrodia Mushroom, 392 mg Chaga Mushroom, No Guesswork., Net Wt. 150g (5.29 Oz), Dietary Supplement]
+
+## 2026-06-03 23:39 UTC
+
+**Slide 1:**
+THE NEUROSCIENCE OF LONELINESS: HOW THE BRAIN SLOWLY REWIRES ITSELF TO EXPECT BEING ALONE
+SWIPE
+
+**Slide 2:**
+YOUR BRAIN READS CONNECTION AS SURVIVAL, NOT PREFERENCE
+TO THE BRAIN, BEING PART OF A GROUP ISN'T AN EMOTIONAL NICETY, IT'S A SURVIVAL SIGNAL AS OLD AS FIRE. THE SAME CIRCUITS THAT FIRE FOR PHYSICAL SAFETY FIRE WHEN YOU'RE CONNECTED TO PEOPLE. THIS IS WHY PROLONGED LONELINESS DOESN'T JUST FEEL BAD, IT REGISTERS AS A STATE THE BRAIN TREATS AS A LOW-GRADE EMERGENCY.
+SWIPE
+
+**Slide 3:**
+LONELINESS KEEPS THE THREAT SYSTEM QUIETLY ON
+CHRONICALLY LONELY BRAINS SHOW A CONSTANTLY ELEVATED ALERTNESS, THE BODY'S STRESS CHEMISTRY STAYS FAINTLY ACTIVE EVEN IN SAFE ROOMS. YOU BECOME MORE VIGILANT TO SIGNS OF REJECTION WITHOUT REALISING IT.
+SWIPE
+
+**Slide 4:**
+YOU START READING SOCIAL SIGNALS AS MORE HOSTILE
+LONELY BRAINS DEVELOP A BIAS THE PERSON DOESN'T CHOOSE. NEUTRAL FACES START LOOKING SLIGHTLY DISAPPROVING AND CASUAL SILENCE STARTS FEELING LIKE DISTANCE. THE BRAIN ISN'T BEING PARANOID, IT'S PREDICTING BASED ON THE DATA IT HAS.
+SWIPE
+
+**Slide 5:**
+THE PEOPLE WHO COULD HELP YOU START TO FEEL UNSAFE
+THIS IS WHERE THE LOOP TIGHTENS. AS SOCIAL SIGNALS START READING AS COLDER, THE PEOPLE YOU'D MOST NEED TO CONNECT WITH (FRIENDS, FAMILY, POSSIBLE NEW CONNECTIONS) START FEELING SUBTLY THREATENING. YOU PULL AWAY FROM THE EXACT CONTACT THAT WOULD CORRECT THE PREDICTION.
+SWIPE
+
+**Slide 6:**
+WITHDRAWAL BECOMES SELF REINFORCING
+EVERY AVOIDED INTERACTION CONFIRMS THE PREDICTION. THE BRAIN LEARNS: I TRIED TO BE ALONE, I WAS ALONE, I SURVIVED, ALONE IS THE SAFER STATE. WITHIN MONTHS THIS PATTERN BECOMES THE DEFAULT, THE BRAIN HAS REWIRED ITSELF TO EXPECT BEING ALONE.
+SWIPE
+
+**Slide 7:**
+THE WAY OUT IS REPEATED LOW-STAKES CONTACT
+THE BRAIN ONLY UPDATES THE PREDICTION THE SAME WAY IT BUILT IT: SLOWLY, THROUGH REPEATED EVIDENCE. BRIEF, FREQUENT, LOW-STAKES INTERACTIONS OVER WEEKS, THE BARISTA, THE NEIGHBOUR, THE GYM REGULAR, ARE WHAT REWIRE THE SYSTEM THAT THE LONELINESS REWIRED.
+SWIPE
+
+**Slide 8:**
+FOLLOW US TO LEARN MORE ABOUT YOUR BRAIN
+
+## 2026-06-04 16:21 UTC
+
+**Slide 1:**
+NOT HAVING A DAILY ROUTINE LITERALLY AGES YOUR BRAIN FASTER
+NEUROLOGY, DOI: 10.1212/WNL.0000000000214513
+SWIPE
+
+**Slide 2:**
+In a three-year observational study of 2,183 adults wearing chest monitors for about 12 days, those with the weakest daily activity rhythms had nearly 2.5 times the dementia risk of those with the strongest rhythms, which is one of the clearest markers of accelerated brain aging.
+
+**Slide 3:**
+"Daily rhythm" isn't about being a morning person. It's about how consistent the pattern is: getting up, being active, winding down at predictable times. The brain runs on an internal clock that depends on regularity to stay calibrated.
+
+**Slide 4:**
+The timing of the day's peak also mattered. Adults whose energy peaked at 2:15 p.m. or later had 45% higher dementia risk than those peaking in the early afternoon. Shifting the day's center of gravity later carries a measurable cost.
+
+**Slide 5:**
+The mechanism runs through sleep, hormone cycles, and the brain's overnight cleanup systems, all of which depend on regularity. When the rhythm flattens, those processes degrade. The brain doesn't get the off-cycle it needs to clear waste and consolidate memory.
+
+**Slide 6:**
+This doesn't mean always have a rigid schedule, but it's important to have anchor points: same wake time, same first meal, same morning light exposure, same wind-down window. The brain needs the bookends consistent. What happens between them can vary.
+
+**Slide 7:**
+The brain doesn't just prefer routine. It runs on it. The more predictable the daily rhythm, the more efficiently the brain can do the maintenance work that protects it over time.
+
+Comment "STUDY" and we'll send you the complete study breakdown.
+
+## 2026-06-04 23:17 UTC
+
+**Slide 1:**
+TRYING TO "WIN" AN ARGUMENT WORKS AGAINST THE ONLY SYSTEM THAT CAN REPAIR THE RELATIONSHIP AFTER IT
+SWIPE
+
+**Slide 2:**
+Neuroscience shows the brain in a state of conflict isn't using the parts of itself that build relationships. The activation has moved out of the regions responsible for empathy, perspective-taking, and repair, and into the regions responsible for threat response. The person you're arguing with is, in a real biological sense, no longer the same person.
+
+**Slide 3:**
+This is why winning an argument feels hollow even when you're objectively right. The "winning" was done by the part of the brain optimized for survival, not for relationship. The system that would have repaired the relationship was offline the entire time, and the cost of using the wrong system shows up afterward, not during.
+
+**Slide 4:**
+When you experience this, recognize the state and pause the content. Most fights aren't actually about what they say they're about. They're about two nervous systems in dysregulation trying to use a verbal argument to discharge the activation. Returning to the conversation an hour later, calm, almost always produces a different outcome.
+
+**Slide 5:**
+This isn't about avoiding conflict. Conflict, done in a regulated state, is genuinely repairing. It's an argument for noticing the state first. The same words, said by a calm body, produce closeness. Said by a dysregulated body, they produce damage even when they're true.
+
+**Slide 6:**
+There's a marker for this in real time. If you can't accurately summarize what the other person just said, you're in the wrong state to respond. The brain that can't repeat the input isn't in repair mode, it's in defense mode, and anything it says will be coming from the wrong system.
+
+**Slide 7:**
+You don't win arguments in close relationships. You either repair them or you damage them. The system doing the talking decides which one.
+
+Follow @neuroglobe to learn more about your brain.
+
+## 2026-06-05 16:35 UTC
+
+**Slide 1:**
+THE MOST POWERFUL FORM OF MOTIVATION DOESN'T COME FROM SUCCESS, IT COMES FROM THE FEELING OF GETTING CLOSER TO SUCCESS
+SWIPE
+
+**Slide 2:**
+Neuroscience shows dopamine doesn't fire hardest when you succeed. It fires hardest when you anticipate that success is getting closer. The system was built for pursuit, not arrival. People who stay motivated over long timelines aren't ones who love the result more, they're ones who've learned to feel the chase.
+
+**Slide 3:**
+This is the mechanism behind one of the most important findings in motivation research. People who track small daily progress, even toward distant goals, sustain effort dramatically longer than people focused only on the outcome. The progress itself becomes the dopamine source; the outcome becomes a bonus.
+
+**Slide 4:**
+Make progress visible at a small enough scale that the brain can register motion every day. A reading log, a workout streak, a weekly weight chart. None of these change the outcome, they change what the brain is reliably rewarded for, and that changes whether you keep going.
+
+**Slide 5:**
+The opposite mistake is fixating on the outcome alone. The brain gets little to no signal during the long middle, where most of the actual work happens. By the time the outcome arrives, months or years later, the system has already given up several times and been forced back by willpower instead.
+
+**Slide 6:**
+This also explains why some people seem to enjoy hard work that looks miserable from the outside. They're not enduring the process; they're being rewarded by it. The same task that depletes someone else's system is feeding theirs, because they've learned to point dopamine at motion instead of arrival.
+
+**Slide 7:**
+Motivation isn't a feeling you wait for. It's a side effect of letting your brain notice progress. People who do that on purpose are the ones who keep going.
+
+Comment "PROGRESS" and we'll send you our full guide on how the brain processes motivation and how to and how to engineer it to last.
+
+## 2026-06-05 23:39 UTC
+
+**Slide 1:**
+TOP 5 MOST RESEARCHED EFFECTS OF ALCOHOL ON THE BRAIN
+SWIPE
+
+**Slide 2:**
+IT SHRINKS THE BRAIN, EVEN AT "MODERATE" DOSES
+THE LARGEST BRAIN-IMAGING STUDY EVER DONE (36,000+ ADULTS) FOUND THAT EVEN ONE TO TWO DRINKS A DAY MEASURABLY SHRINKS THE BRAIN. THE EFFECT IS ROUGHLY EQUIVALENT TO SEVERAL YEARS OF BRAIN AGING. THERE IS NO CLEARLY SAFE THRESHOLD.
+SWIPE
+
+**Slide 3:**
+IT FRAGMENTS YOUR SLEEP ARCHITECTURE
+ALCOHOL CUTS REM SLEEP, THE STAGE THAT CONSOLIDATES MEMORY AND EMOTIONAL REGULATION. EVEN ONE DRINK WITHIN THREE HOURS OF BED MEASURABLY DEGRADES SLEEP QUALITY. THE BRAIN'S DEEPEST RESTORATIVE WORK GETS QUIETLY SKIPPED.
+SWIPE
+
+**Slide 4:**
+IT IMPAIRS MEMORY CONSOLIDATION
+ALCOHOL BLOCKS THE BRAIN'S ABILITY TO ENCODE NEW MEMORIES IN REAL TIME, WHICH IS WHY HEAVY DRINKING PRODUCES BLACKOUTS. CHRONIC USE DAMAGES THE HIPPOCAMPUS AND SLOWS THE CREATION OF NEW NEURONS. THE MEMORY LOSS IS LITERAL.
+SWIPE
+
+**Slide 5:**
+IT CALMS YOU, THEN MAKES YOU MORE ANXIOUS THE NEXT DAY
+ALCOHOL AMPLIFIES GABA, THE BRAIN'S MAIN CALMING CHEMICAL, WHICH IS WHY ONE DRINK LOWERS STRESS. THE BRAIN COMPENSATES BY DOWNREGULATING ITS OWN GABA RECEPTORS. WHEN THE ALCOHOL WEARS OFF, YOU'RE LEFT WITH LESS OF YOUR OWN CALMING CHEMISTRY ONLINE.
+SWIPE
+
+**Slide 6:**
+IT SIGNIFICANTLY RAISES DEMENTIA RISK
+RESEARCH CONSISTENTLY LINKS HEAVY ALCOHOL USE TO SUBSTANTIALLY HIGHER DEMENTIA RISK, INCLUDING EARLY-ONSET CASES. EVEN MODERATE DRINKING IS ASSOCIATED WITH MEASURABLE COGNITIVE DECLINE OVER DECADES. OF ALL MODIFIABLE DEMENTIA RISK FACTORS, ALCOHOL RANKS AMONG THE MOST CONSISTENTLY IDENTIFIED.
+SWIPE
+
+**Slide 7:**
+FOLLOW US TO LEARN MORE ABOUT YOUR BRAIN
+
+## 2026-06-06 16:12 UTC
+
+**Slide 1:**
+FIRST TIME MEDITATORS SHOWED REAL-TIME PHYSICAL CHANGES IN THE BRAIN'S FEAR AND MEMORY CENTERS
+PNAS, DOI: 10.1073/PNAS.2409423122
+SWIPE
+
+**Slide 2:**
+Using implanted electrodes, researchers recorded directly from inside the brain during a single ten-minute session of meditation. Even in participants who had never meditated before, activity in the amygdala (the brain's fear center) and the hippocampus (its memory hub) shifted measurably.
+
+**Slide 3:**
+The specific change was an increase in high-frequency brain wave activity in both regions. These faster waves are associated with focused attention, conscious experience, and emotion regulation. The pattern looked like the brain self-organizing into a more coordinated state, not a slowing or calming, but a sharpening.
+
+**Slide 4:**
+The fact that this happened in first time meditators is the most useful finding. The common argument that meditation requires years of practice to produce real neural change is one of the main reasons most people don't start. The data suggests the first session is already doing measurable work on the structures most associated with anxiety and memory.
+
+**Slide 5:**
+Most of the meditation conversation assumes the brain change is the reward for years of discipline. The data suggests the brain change is the entry point.
+
+Comment "STUDY" and we'll send you the complete study breakdown.
+
+## 2026-06-06 23:08 UTC
+
+**Slide 1:**
+WANTING SOMETHING AND LIKING SOMETHING USE COMPLETELY DIFFERENT BRAIN SYSTEMS, AND MOST PEOPLE CHASE THE WRONG THING BECAUSE THEY DON'T KNOW THE DIFFERENCE
+SWIPE
+
+**Slide 2:**
+Neuroscience shows the brain handles wanting and liking with two separate systems. Wanting is driven by dopamine and produces the pull toward something. Liking is driven by the opioid system and produces the actual pleasure of having it. The two are designed to work together, but in modern life they often come apart.
+
+**Slide 3:**
+The thing most people don't realize is that you can want something intensely without liking it at all. Scrolling a phone, gambling, binge-watching, certain relationships, these all produce strong wanting and very little liking. The brain pulls you toward them, but it doesn't enjoy them.
+
+**Slide 4:**
+This is the mechanism behind a particular kind of suffering. People assume that anything they keep coming back to must be something they enjoy. Often it isn't. They've trained a wanting circuit without ever firing the liking one, and the pull keeps deepening even as the satisfaction stays flat.
+
+**Slide 5:**
+Conduct a small audit on yourself. For any repeated behavior, ask two separate questions: "How strong is the urge before I do it?" and "How good does it feel during?" If the first is high and the second is low, you've found a wanting-without-liking pattern. The brain is signaling pursuit of something it doesn't actually enjoy.
+
+**Slide 6:**
+The fix isn't suppression. It's redirection. The wanting circuit will keep firing because it has to fire, but it can be pointed at things that also fire the liking circuit. Real food, real attention, real relationships, real movement. These produce both. Most modern fast-rewards produce one without the other.
+
+**Slide 7:**
+Life satisfaction isn't about getting what you want. It's about wanting things you also like. Most people never make that distinction, and they're confused for decades about why getting what they wanted didn't feel like anything.
+
+Follow @neuroglobe to learn more about your brain.
+
+## 2026-06-07 16:19 UTC
+
+**Slide 1:**
+EXTREME SELF-RELIANCE PHYSICALLY REWIRES THE BRAIN AREAS RESPONSIBLE FOR RECEIVING CARE
+SWIPE
+
+**Slide 2:**
+Neuroscience shows hyper-independence, the inability to ask for help, accept support, or let others step in, is rarely a personality trait. It's the legible signature of a nervous system that learned, early, that needing things was costly. The pattern gets celebrated culturally and protected biologically.
+
+**Slide 3:**
+What this looks like in adulthood: chronic over-functioning, difficulty delegating, exhaustion that can't be admitted, relationships where you give but don't receive. None of these are character. They're the long-term output of a system that decided being self-sufficient was safer than being supported.
+
+**Slide 4:**
+The brain regions responsible for taking in care and for letting another person's calm regulate your stress physically weaken when they're not used. Over years, the capacity to receive shrinks. By adulthood, even genuine offers of help can feel intrusive, suspicious, or wrong.
+
+**Slide 5:**
+The practical move is to retrain the receiving system in small, low-stakes ways. Letting someone hold a door, finish your sentence, pay for coffee, sit with you in silence. These are not interpersonal niceties, they're reps for a brain region that's been offline for decades.
+
+**Slide 6:**
+The reason this matters beyond relationships is biological. Co-regulation, the body's stress system relaxing in the presence of another calm body, is one of the most powerful nervous-system tools we have. Hyper-independent people don't have access to it, even when it's right in front of them.
+
+**Slide 7:**
+Strength isn't doing everything alone. It's the willingness to let your nervous system finally use the help that's been available the whole time.
+
+Comment "REWIRE" and we'll send you 7 proven ways to train the brain area responsible for receiving care.
+
+## 2026-06-07 23:38 UTC
+
+**Slide 1:**
+BEING MORE OPTIMISTIC CAN ACTUALLY LOWER YOUR RISK OF DEMENTIA
+JOURNAL OF THE AMERICAN GERIATRICS SOCIETY, DOI: 10.1111/JGS.70392
+SWIPE
+
+**Slide 2:**
+In a 14-year follow-up study of 9,071 cognitively healthy older adults, every standard-deviation increase in optimism was associated with an 18% lower risk of developing dementia. This isn't about positive thinking as a vague mood. The scale measured something specific: the tendency to expect generally good outcomes and to interpret ambiguous situations favorably. It's a measurable trait, not a personality stereotype.
+
+**Slide 3:**
+The protective effect held across racial groups, across health statuses, and even after accounting for depression, showing that optimism does independent biological work on top of the absence of mood pathology. Optimists show lower chronic cortisol exposure, lower systemic inflammation, and stronger immune function on average. They also tend to sleep better, exercise more, and follow health behaviors more consistently. The trait shapes the biology, and the biology shapes the brain.
+
+**Slide 4:**
+Optimism is partially trainable. Specific cognitive practices, such as savoring positive experiences, reframing setbacks as temporary and specific, mentally simulating best-case outcomes, measurably shift optimism scores over weeks to months. The trait that protects against dementia isn't fixed at birth.
+
+**Slide 5:**
+Your outlook on life is a modifiable health variable, not a personality verdict. The dementia data is the strongest argument yet for why the inner monologue isn't just psychological, it's biological.
+
+Follow @neuroglobe to learn more about your brain.
+
+## 2026-06-08 16:33 UTC
+
+**Slide 1:**
+CHASING MORE DOPAMINE WILL ALWAYS LOWER YOUR BASELINE. HERE'S WHAT ACTUALLY RAISES IT
+SWIPE
+
+**Slide 2:**
+Neuroscience shows your felt sense of pleasure at rest (your baseline dopamine) isn't fixed. It moves with what you've been feeding your brain. Chasing intense inputs over and over doesn't just give you a free spike. It quietly drags the floor of how good you feel when nothing's happening, lower and lower.
+
+**Slide 3:**
+Your brain has tiny receivers that catch the dopamine signal called dopamine receptors. When the brain gets flooded with too much dopamine too often, it protects itself by pulling some of those receivers back. The chemistry is still being released. There's just less of you available to feel it.
+
+**Slide 4:**
+This is what the slow flattening of modern life actually is. Food tastes less interesting. Conversations feel less alive. Music doesn't hit. None of this is depression in the clinical sense. It's a baseline that's been pulled down by consistent inputs the brain had to keep absorbing.
+
+**Slide 5:**
+The fix almost everyone gets wrong is more spikes. Cold showers, intense workouts, "healthy" thrills, supplement stacks. These don't restore the receivers, they keep them pulled back, because the brain is still being flooded. Stacking more dopamine on top of a numbed system doesn't repair it. It buries it deeper.
+
+**Slide 6:**
+What actually raises the baseline is the opposite. Long stretches of low input: boredom, slow mornings, walks without a podcast, meals without a screen. A few days of deliberately quiet stimulation, and the receivers start coming back online. Sweetness returns to ordinary food. Conversations feel sharper. The world hasn't changed. The receivers have.
+
+**Slide 7:**
+You don't raise your baseline dopamine by giving the brain more dopamine to ignore. You raise it by letting the brain stop ignoring. The chemistry was never the problem. The reception was.
+
+Comment "BASELINE" and we'll send you 6 proven habits that raise your baseline dopamine.
+
+## 2026-06-08 22:47 UTC
+
+**Slide 1:**
+RED LIGHT + INFRARED HEAT IS ONE OF THE MOST POWERFUL COGNITIVE COMBINATIONS ON THE PLANET, AND ALMOST NO ONE UNDERSTANDS WHY
+SWIPE
+
+**Slide 2:**
+Red light boosts energy production inside your neurons. Infrared heat increases blood flow and strips away inflammation. Each is powerful alone. Together, they hit every major bottleneck limiting your brain, simultaneously.
+
+RED LIGHT: Cellular Energy
+INFRARED HEAT: Blood Flow + ↓ Inflammation
+→ Brain Performance ↑
+
+**Slide 3:**
+Your brain burns more energy than almost any other organ. Red light refuels it at the cellular level, directly inside your mitochondria. That's why people report sharper thinking and less mental fatigue within days.
+
+BRAIN ENERGY USAGE
+~20% of your body's total energy
+
+**Slide 4:**
+Infrared heat does something red light panels can't: it raises your core temperature, triggering a surge in blood flow and heat shock proteins that repair damaged cells, reduce inflammation, and accelerate brain recovery.
+
+**Slide 5:**
+When you combine both, the effects compound. Red light raises BDNF, the protein that builds new brain connections. Infrared heat amplifies circulation so that BDNF reaches more of your brain, faster. This is why the combination outperforms either alone.
+
+BDNF (Brain-Derived Neurotrophic Factor): A protein critical for neural growth, plasticity, and connection.
+
+**Slide 6:**
+This isn't a stimulant or a hack. Red light + infrared heat remove the three biological bottlenecks, low cellular energy, poor circulation, and chronic inflammation, that were silently limiting your brain all along.
+
+Low cellular energy
+Poor circulation
+Chronic inflammation
+
+**Slide 7:**
+Ready to unlock both?
+
+Comment "SAUNA" below.
+
+We'll send you our top-rated infrared saunas + an exclusive $100 off.
+
+## 2026-06-08 23:57 UTC
+
+**Slide 1:**
+10 WAYS TO SLOW DOWN BRAIN AGING IN UNDER 30 MINUTES
+SWIPE
+
+**Slide 2:**
+1. TAKE A WALK OUTSIDE
+Even 20 minutes of walking outdoors raises BDNF, the protein that drives neuron growth and repair, and increases blood flow the brain uses to clear inflammatory byproducts. Outdoor light adds a circadian and mood layer that walking on a treadmill doesn't.
+SWIPE
+
+**Slide 3:**
+2. LIFT SOMETHING HEAVY
+Even just two short resistance-training sessions a week preserves hippocampal volume and gray matter in adults, which are the brain regions that shrink most with age. The protective effect on memory and executive function shows up in studies that didn't even track muscle gains.
+SWIPE
+
+**Slide 4:**
+3. GET MORNING SUNLIGHT IN YOUR EYES
+Ten minutes of outdoor light within an hour of waking anchors your circadian rhythm and the brain's nightly clearance cycle. Better sleep is downstream of this, and better sleep is one of the strongest predictors of slowed cognitive aging.
+SWIPE
+
+**Slide 5:**
+4. READ A PAPER BOOK
+Sustained reading on paper builds cognitive reserve, the buffer that delays the visible symptoms of brain aging by years. The depth of attention paper demands appears to be what builds it. The same time on a screen doesn't seem to do the same work.
+SWIPE
+
+**Slide 6:**
+5. TAKE A SHORT NAP
+A 20-minute afternoon nap clears metabolic waste from the brain, consolidates the morning's memory, and reduces inflammation markers. Naps longer than 30 minutes start to fragment night sleep, keep it under that and the brain treats it as a free recovery cycle.
+SWIPE
+
+**Slide 7:**
+6. SIT IN A SAUNA
+Studies tracking thousands of adults over decades found four or more sauna sessions a week was associated with up to a 60% reduction in dementia risk. The mechanism is heat-shock protein expression, vascular conditioning, and the same brain-growth factors exercise activates.
+SWIPE
+
+**Slide 8:**
+7. DO 10 MINUTES OF MEDITATION OR BREATHWORK
+Brain imaging in long-term meditators shows thicker prefrontal cortex, reduced amygdala volume, and stronger vagal tone, measurable markers of slower brain aging.
+SWIPE
+
+**Slide 9:**
+8. TAKE A COLD SHOWER
+Even two minutes of cold water triggers a sharp norepinephrine surge and elevates the brain's growth factors. Regular cold exposure is associated with reduced neuroinflammation, one of the underlying drivers of brain aging, and a measurable lift in alertness and mood.
+SWIPE
+
+**Slide 10:**
+9. SPEAK TO SOMEONE YOU CARE ABOUT
+Social engagement is among the strongest predictors of cognitive resilience in old age, stronger than most lifestyle factors. A 10-minute phone call counts. Loneliness measurably accelerates brain aging.
+SWIPE
+
+**Slide 11:**
+10. PRACTICE SOMETHING GENUINELY NEW
+Novel learning (a new instrument, a new language, a new physical skill) produces neural growth that nothing else can. The challenge of building something the brain hasn't done before is what triggers structural change.
+SWIPE
+
+**Slide 12:**
+FOLLOW US TO LEARN MORE ABOUT YOUR BRAIN
+
+## 2026-06-09 16:22 UTC
+
+**Slide 1:**
+SAFFRON MATCHED CLINICAL ANTIDEPRESSANTS IN TREATING DEPRESSION AND ANXIETY, AND CAUSED FEWER SIDE EFFECTS
+NUTRITION REVIEWS, DOI: 10.1093/NUTRIT/NUAE076
+SWIPE
+
+**Slide 2:**
+A recent meta-analysis of 12 randomized controlled trials and 728 patients with mild-to-moderate depression or anxiety compared saffron head-to-head against SSRIs, the class of drugs that includes Prozac, Zoloft, and other leading antidepressants. On the standard depression and anxiety rating scales, saffron performed statistically indistinguishably from the SSRIs.
+
+**Slide 3:**
+The pooled data showed essentially no gap between the two groups, both improved depression and anxiety scores by the same amount over the same time window. This wasn't a saffron-was-almost-as-good finding. The numbers landed on top of each other.
+
+**Slide 4:**
+The real difference showed up in the side effect profile. The saffron group had a 6-percentage-point lower absolute risk of adverse events with fewer reports of nausea, dizziness, and sexual dysfunction. Both arms used standardized doses: roughly 30 mg/day of saffron extract versus standard therapeutic doses of the SSRIs.
+
+**Slide 5:**
+Antidepressants work primarily by blocking the reuptake of one neurotransmitter, serotonin. The broader research on saffron points to a different shape: its active compounds influence serotonin, dopamine, brain inflammation, cortisol regulation, and oxidative stress in parallel. A multi-pathway intervention matched a single-pathway pharmaceutical head-to-head.
+
+**Slide 6:**
+This doesn't mean that people should switch to saffron. It means that depression has been treated for decades as if it were primarily a serotonin problem, and a multi-pathway intervention matched the serotonin-targeting drugs head-to-head. That suggests the field may have been getting the right outcome from the wrong model of what's actually driving it.
+
+**Slide 7:**
+The real takeaway is simpler than the natural-versus-pharmaceutical framing makes it. For mild-to-moderate depression and anxiety, the evidence-backed options is wider than most people are told. And the better question to ask about any treatment isn't where it comes from, but how much of the underlying biology it actually moves.
+
+Comment "STUDY" and we'll send you our full breakdown of the study.
+
+## 2026-06-09 23:37 UTC
+
+**Slide 1:**
+RE-READING A BOOK ACTIVATES A COMPLETELY DIFFERENT NEURAL NETWORK THAN READING IT THE FIRST TIME, AND THE SECOND NETWORK IS WHERE WISDOM GETS STORED
+SWIPE
+
+**Slide 2:**
+Neuroscience shows the brain reads a book differently the second time. The first pass is dominated by the language network, your brain is building the story, the characters, and the world from scratch. The second pass shifts work into the default mode network, the system the brain uses to think about itself.
+
+**Slide 3:**
+This is why people often say a great book gets better on the second read. They aren't imagining it. The second read is using the book as a mirror, running its ideas against your own life, your own patterns, your own choices. The book has stopped being something you're consuming and become something you're using.
+
+**Slide 4:**
+Practically, this is why re-reading a great book is often a higher-leverage use of time than starting a new one. A first read teaches you what the book says. A second read teaches you what you've changed since the first one, and reveals new lines the brain wasn't ready to absorb before.
+
+**Slide 5:**
+The principle generalizes. Re-watching a film you loved years ago, re-listening to an album from a hard chapter of your life, re-reading old journals, these aren't nostalgic indulgences. They're high-resolution measurements of the version of you that's different now.
+
+**Slide 6:**
+This also reframes the obsession with "reading more." People who read ten books a year and revisit two great ones often get more than people who race through fifty new ones. The first group is letting the brain do the second pass, the one that actually rewires.
+
+**Slide 7:**
+What you re-read teaches you more than what you read. The first time is for the book. The second time is for you.
+
+Follow @neuroglobe to learn more about your brain.
+
+## 2026-06-10 16:40 UTC
+
+**Slide 1:**
+THE MOST POWERFUL WAY TO TRIGGER NEUROPLASTICITY ISN'T NOVELTY OR REPETITION, IT'S DISCOMFORT
+SWIPE
+
+**Slide 2:**
+Neuroscience shows novelty and repetition both contribute to rewiring, but neither does much without something deeper underneath. The strongest trigger is doing something you don't yet know how to do, the specific state where you're failing more than you're succeeding. Discomfort during learning isn't a side effect of the process. It's the signal that real rewiring is actually running.
+
+**Slide 3:**
+Novelty alone, without real difficulty, mostly produces entertainment. Repetition alone, without struggle, mostly reinforces what you can already do. The brain has to encounter genuine "I can't do this yet" before it activates the chemistry that builds new connections, and that "yet" is where almost everyone bails.
+
+**Slide 4:**
+This process is called prediction error. When the brain tries to do something and fails, it produces a measurable error signal, and that signal is what triggers the release of the growth chemistry, including dopamine and BDNF (a protein the brain uses to build new connections), that physically rewires the system. No error means no signal, which means no rewiring.
+
+**Slide 5:**
+The conditions that feel hardest in the moment: spacing your practice, mixing up topics, testing yourself before you feel ready, consistently produce the strongest long-term learning. Conditions that feel smooth and easy produce the weakest. The brain's growth signal is calibrated to difficulty, not to progress.
+
+**Slide 6:**
+This reframes the way most people practice anything. The version that feels good (re-reading notes, doing problems you already know how to solve, watching one more tutorial) feels like progress and produces almost none. The version that feels bad (trying to recall before you're ready, failing repeatedly, sitting in the not-knowing) feels like failure and produces the most growth. Performance during learning is a terrible indicator of actual learning.
+
+**Slide 7:**
+Discomfort isn't the price of neuroplasticity. It's the proof that neuroplasticity is happening. The people who learn fastest are the ones who recognize what it actually is and refuse to escape it early.
+
+Comment "REWIRE" and we'll send you the 4 proven forms of difficulty that trigger neuroplasticity, and how to use each one.
+
+## 2026-06-10 17:31 UTC
+
+**Slide 1:**
+YOUR BRAIN ISN'T BUILT BY WHAT YOU STIMULATE, IT'S BUILT BY WHAT YOU PROTECT
+SWIPE
+
+**Slide 2:**
+Neuroscience consistently shows that cognitive decline is driven by what accumulates over decades, not by what you fail to optimize in any single week. Oxidative damage, chronic inflammation, and structural wear are the actual variables that determine brain performance at 40, 50, and 60.
+
+**Slide 3:**
+Stimulation feels productive in the moment because the reward is immediate. Caffeine, novelty, intense focus sessions all produce clear short-term effects. The brain you build over time, though, isn't the sum of those moments, it's the sum of how protected your neurons were while you were having them.
+
+**Slide 4:**
+Protection comes from three systems: antioxidant defense against oxidative damage, inflammation regulation that prevents quiet wear, and structural maintenance that keeps neurons functional and connected. None of these produce a feeling. All of them produce decades of performance.
+
+**Slide 5:**
+This shift matters because the brain doesn't decline from a single event. It declines from the accumulated effect of insufficient defense across millions of small moments: late nights, processed food, chronic stress, environmental load. The compounds that protect are the ones that work quietly in the background.
+
+**Slide 6:**
+Functional mushrooms appear repeatedly in the brain-protection literature for this exact reason. Chaga has some of the highest antioxidant capacity of any natural source. Reishi modulates inflammatory signaling, and Lion's Mane supports the structural systems behind neuron maintenance, none stimulate, all protect.
+
+Comment "MUSHROOM" and we'll send you our recommended source of high quality functional mushroom blends.
+
+## 2026-06-11 00:33 UTC
+
+**Slide 1:**
+THE NEUROSCIENCE OF PERSONAL GROWTH: WHY YOUR BRAIN TREATS BECOMING BETTER AS A THREAT
+SWIPE
+
+**Slide 2:**
+YOUR BRAIN TREATS IDENTITY LOSS LIKE DEATH
+Your brain stores your sense of self as a prediction. Who you are, what you do, what you'll choose next, it defends that prediction with the same circuits that defend your life. Losing who you've been isn't symbolic to the brain. It's biological. It reads as a threat to survival.
+SWIPE
+
+**Slide 3:**
+GROWTH IS TREATED AS AN ATTACK
+When you act outside the brain's predicted version of you, the prediction breaks. The same alarm circuits that fire under physical threat fire now, and pull you back toward the familiar. The discomfort of real change isn't weakness. It's the brain doing the only thing it knows to do when it reads danger.
+SWIPE
+
+**Slide 4:**
+HEALING MAKES YOU HARDER TO LOVE
+The people closest to you have nervous systems trained to expect a specific version of you. When you change, their attachment alarm fires too. They don't feel like you got cold. They feel like you broke a contract no one named.
+SWIPE
+
+**Slide 5:**
+FALLING APART IS THE REBUILD IN DISGUISE
+Neuroplasticity doesn't add new behavior on top of the old. The brain has to weaken and prune the old connections before the new ones can stabilize. The chaotic middle of any real change is this pruning. Most people quit here, thinking the chaos means they're failing. It means it's working.
+SWIPE
+
+**Slide 6:**
+KNOWING MORE COSTS MORE
+The unaware version of you required less energy to run. Awareness activates introspective machinery, a system that monitors in the background, costing real metabolic resources the old you didn't spend. The longing for who you used to be isn't a sign to go back. It's the brain noticing that the new self costs more to be.
+SWIPE
+
+**Slide 7:**
+TIME DOES THE WORK, NOT WILLPOWER
+The brain reorganizes around a new identity on its own clock, weeks to months for the prediction model to update, longer for the social rewiring. You can't accelerate this by trying harder. You can only stay in the new pattern long enough for the brain to accept it as the predicted state.
+SWIPE
+
+**Slide 8:**
+FOLLOW US TO LEARN MORE ABOUT YOUR BRAIN
+
+## 2026-06-11 16:07 UTC
+
+**Slide 1:**
+DRINKING CAFFEINE DURING PREGNANCY PHYSICALLY CHANGES THE CHILD'S BRAIN AND IS LINKED TO HIGHER RATES OF BEHAVIOR PROBLEMS
+
+JOURNAL OF CHILD PSYCHOLOGY AND PSYCHIATRY, DOI: 10.1111/JCPP.13495
+
+SWIPE
+
+**Slide 2:**
+Using data from the largest U.S. study of childhood brain development, nearly 12,000 kids tracked from age 9 across 22 sites, researchers found that children whose mothers drank caffeine during pregnancy showed measurable differences in brain structure on MRI. They also showed higher rates of behavior problems compared to children without prenatal exposure.
+
+**Slide 3:**
+The most striking part wasn't the existence of the effect. It was where it showed up. The brain and behavior changes were present at the recommended "safe" dose, up to 200 mg of caffeine per day, or roughly two cups of coffee. The current guideline didn't separate exposed children from unexposed.
+
+**Slide 4:**
+The effect of the behavior changes was comparable to what previous studies have found for prenatal alcohol and prenatal cannabis exposure. Caffeine, a substance generally treated as harmless during pregnancy, showed up in the data alongside two substances most people would never consume while pregnant.
+
+**Slide 5:**
+The mechanism explains why even a small dose matters. During pregnancy, caffeine takes much longer to clear, up to 15 hours by the third trimester. The fetus has almost no ability to metabolize it, so caffeine accumulates in the developing brain. There it blocks the chemical signals the brain uses to pace its own growth, especially in the rear cortex where those signals are most concentrated.
+
+**Slide 6:**
+The recommended "safe" dose of caffeine during pregnancy may need to be reassessed. The data suggest there isn't a known daily dose where the brain effects fully disappear, and they're still visible on MRI 9 years later.
+
+Comment "STUDY" and we'll send you our full breakdown of the study.
+
+## 2026-06-11 23:22 UTC
+
+**Slide 1:**
+IF YOU DON'T BELIEVE SOMETHING IS POSSIBLE, YOUR BRAIN LITERALLY FILTERS IT OUT OF YOUR REALITY
+
+SWIPE
+
+**Slide 2:**
+Neuroscience shows the brain doesn't show you reality directly. It shows you a prediction of reality, built from what you already believe is possible. Every input from your senses gets checked against that prediction, and whatever doesn't match tends to get filtered out before you consciously see it.
+
+**Slide 3:**
+This isn't manifestation. It's a process called predictive processing, one of the most established frameworks in modern brain science. Your senses send up far more data every second than awareness can handle, so the brain compresses it by attending mostly to what matches its current model of the world. Things outside the model are quietly discarded as noise.
+
+**Slide 4:**
+The clearest demonstration is the classic invisible-gorilla study. People asked to count basketball passes in a short video routinely fail to notice a person in a gorilla suit walking through the middle of the scene. The gorilla isn't hidden, it's the most obvious thing on screen. Their attention was set on basketballs, and the gorilla didn't match the set. The brain filtered it out.
+
+**Slide 5:**
+The same mechanism runs at the level of opportunities, conversations, and possibilities. People who don't believe a certain kind of life is available to them aren't imagining things, they genuinely don't notice the openings, introductions, and small evidence that would make it possible. The data is in their environment. The brain just isn't pointing them at it.
+
+**Slide 6:**
+This is also why awareness alone produces change. The moment you name a possibility, even reluctantly, the brain adds it to the model and starts noticing inputs it had been deleting. People who try this with one specific goal often report a strange experience within days: the world "suddenly" seems full of relevant people, signals, and openings that were almost certainly there the whole time.
+
+**Slide 7:**
+You don't see the world, you see your brain's model of it. The fastest way to change what shows up in your life is expanding what your brain is willing to let through the filter.
+
+Follow @neuroglobe to learn more about your brain.
+
+## 2026-06-12 17:04 UTC
+
+**Slide 1:**
+THE HARDER YOU ARE ON YOURSELF AFTER A MISTAKE, THE LESS YOUR BRAIN WILL ACTUALLY LEARN FROM IT
+
+SWIPE
+
+**Slide 2:**
+Neuroscience shows harsh self-criticism doesn't sharpen the brain, it shuts down the parts that would actually learn from the mistake. Brain-imaging studies have repeatedly found that being hard on yourself activates the same threat-detection circuits that fire when you're in physical danger. Once those circuits are running, the part of the brain that does honest reflection is largely offline.
+
+**Slide 3:**
+This is the opposite of what most people assume. The cultural script says you need to be tough on yourself to grow, that softness produces complacency and self-criticism produces standards. The brain imaging tells a different story. The "tough" state isn't a high-performance state. It's a defensive state, and defensive brains don't learn, they protect.
+
+**Slide 4:**
+Threat activation raises cortisol, increases activity in the amygdala, the brain's alarm center, and reduces blood flow to the prefrontal cortex, the part responsible for nuance, perspective, and learning from feedback. The harder you are on yourself, the more you're forcing the wrong system to run the analysis.
+
+**Slide 5:**
+The practical reframe is small but high-leverage. Notice the tone you'd use with a friend in the same situation, and use it on yourself. Not as a feel-good move, as a brain-state choice. The kinder tone keeps the learning regions online. Once they're online, the same mistake produces actual insight instead of replayed shame.
+
+**Slide 6:**
+There's a longer-term version of this too. Years of habitual self-criticism train the threat system to fire more easily and the learning system to come online less often. People who have done this for decades often report that they can't even access the calmer state when they need it. The fix is the same in either direction: repeated small reps of treating yourself the way you'd treat someone you actually wanted to help.
+
+**Slide 7:**
+Being kind to yourself after a mistake is the brain state in which honest reflection becomes possible. The people who actually grow from their mistakes aren't the ones who punish themselves hardest, they're the ones whose brains were still online to do the work.
+
+Comment "LEARN" and we'll send you the full guide on how to make sure your brain always learns from your mistakes.
+
+## 2026-06-13 00:16 UTC
+
+**Slide 1:**
+10 POWERFUL NEUROSCIENCE-BACKED TRUTHS ABOUT HUMAN NATURE
+
+SWIPE
+
+**Slide 2:**
+1. PEOPLE JUDGE THEMSELVES BY INTENTIONS AND OTHERS BY ACTIONS
+
+YOU GIVE YOURSELF CREDIT FOR WHAT YOU MEANT TO DO. YOU GIVE OTHER PEOPLE CREDIT ONLY FOR WHAT THEY ACTUALLY DID. THIS SINGLE BIAS EXPLAINS ALMOST EVERY INTERPERSONAL CONFLICT, BOTH SIDES FEEL MISUNDERSTOOD BECAUSE BOTH ARE USING DIFFERENT STANDARDS ON THEMSELVES.
+
+SWIPE
+
+**Slide 3:**
+2. POWER MEASURABLY REDUCES EMPATHY
+
+BRAIN IMAGING SHOWS PEOPLE IN POSITIONS OF AUTHORITY LITERALLY PROCESS OTHER PEOPLE'S EMOTIONAL SIGNALS LESS. THEY BECOME MORE DECISIVE, LESS ATTUNED, MORE CONFIDENT, AND WORSE AT READING THE ROOMS THEY'RE LEADING. POWER DOESN'T REVEAL WHO SOMEONE IS. IT DIMS WHO THEY WERE.
+
+SWIPE
+
+**Slide 4:**
+3. PEOPLE RESENT THE PEOPLE THEY DEPEND ON
+
+THE BRAIN DISLIKES THE FEELING OF NEEDING SOMEONE. DEPENDENCE REGISTERS AS A LOSS OF CONTROL, AND THE MIND MANAGES THAT DISCOMFORT BY QUIETLY RESENTING WHOEVER PROVIDES WHAT WE CAN'T PROVIDE OURSELVES. THIS IS WHY CHILDREN RESENT PARENTS, EMPLOYEES RESENT BOSSES, AND DEPENDENTS RESENT CAREGIVERS, EVEN WHEN THEY LOVE THEM.
+
+SWIPE
+
+**Slide 5:**
+4. THE NEED FOR CERTAINTY BEATS THE NEED FOR TRUTH
+
+MOST PEOPLE DON'T WANT WHAT'S ACCURATE. THEY WANT WHAT'S SETTLED. GIVEN THE CHOICE BETWEEN AN UNCOMFORTABLE TRUTH AND A COMFORTABLE CERTAINTY, THE BRAIN REACHES FOR CERTAINTY ALMOST EVERY TIME. THIS IS WHY PEOPLE DEFEND OBVIOUS LIES AND REJECT OBVIOUS FACTS THAT THREATEN THEIR WORLDVIEW.
+
+SWIPE
+
+**Slide 6:**
+5. HUMANS DEFAULT TO COOPERATION OVER SELFISHNESS
+
+DECADES OF BEHAVIOURAL RESEARCH SHOW HUMANS COOPERATE WITHOUT BEING ASKED, INCLUDING WITH STRANGERS, AND INCLUDING AT PERSONAL COST. DEFECTION IS THE EXCEPTION, NOT THE RULE. SELFISHNESS REQUIRES EFFORT THE BRAIN DOESN'T NATURALLY ALLOCATE. MOST OF WHAT LOOKS LIKE HUMAN CRUELTY IS FEAR, NOT NATURE.
+
+SWIPE
+
+**Slide 7:**
+6. SUFFERING CREATES MORE IDENTITY THAN SUCCESS DOES
+
+THE BRAIN CONSOLIDATES DIFFICULT EXPERIENCES INTO THE SELF-CONCEPT FAR MORE DEEPLY THAN EASY ONES. PEOPLE REMEMBER WHO THEY WERE DURING THEIR WORST CHAPTERS MORE CLEARLY THAN DURING THEIR BEST. THIS IS WHY SO MANY PEOPLE DEFINE THEMSELVES BY WHAT HURT THEM.
+
+SWIPE
+
+**Slide 8:**
+7. ALMOST EVERYONE YOU MEET IS PERFORMING, AND MOST DON'T KNOW IT
+
+HUMANS RUN A CONSTANT BACKGROUND CALCULATION: HOW SHOULD I APPEAR TO WHOEVER IS WATCHING? OVER TIME, THE PERFORMANCE AND THE SELF MERGE. MOST PEOPLE AREN'T BEING AUTHENTIC. THEY'RE RUNNING A VERSION OF THEMSELVES SO PRACTISED THEY'VE FORGOTTEN THERE'S ANYTHING UNDERNEATH.
+
+SWIPE
+
+**Slide 9:**
+8. PEOPLE IMITATE WHAT YOU RESPECT, NOT WHAT YOU PREACH
+
+CHILDREN, EMPLOYEES, STUDENTS, AND PARTNERS WATCH WHAT YOU ADMIRE, NOT WHAT YOU SAY. THEY MODEL THE BEHAVIOURS YOU VISIBLY REWARD IN OTHERS, THE PEOPLE YOU LIGHT UP AROUND, THE QUALITIES YOU ENVY. WHAT YOU PRAISE IN OTHERS IS WHAT YOU TEACH THE PEOPLE WATCHING YOU.
+
+SWIPE
+
+**Slide 10:**
+9. WE'RE MORE LOYAL TO PEOPLE WE'VE SACRIFICED FOR THAN PEOPLE WHO'VE SACRIFICED FOR US
+
+THE BRAIN RATIONALISES EFFORT BY INVENTING MEANING TO JUSTIFY IT. PEOPLE WE'VE HELPED, TAUGHT, OR INVESTED IN EARN A KIND OF LOYALTY IN OUR MINDS THE PEOPLE WHO HELPED US NEVER DO. THIS IS WHY PARENTS LOVE THEIR CHILDREN MORE THAN CHILDREN LOVE THEIR PARENTS, AND WHY MENTORS CARE MORE THAN MENTEES.
+
+SWIPE
+
+**Slide 11:**
+10. MOST CRUELTY COMES FROM PEOPLE WHO BELIEVE THEY'RE GOOD
+
+THE BRAIN DOESN'T TYPICALLY DELIVER HARM TO THOSE IT CODES AS WRONG. IT DELIVERS HARM TO THOSE IT CODES AS WRONG FOR THE RIGHT REASONS. THROUGHOUT HISTORY, ORDINARY PEOPLE HAVE CAUSED ENORMOUS HARM NOT BECAUSE THEY THOUGHT THEY WERE VILLAINS, BUT BECAUSE THEY THOUGHT THEY WERE CORRECTING THE WORLD.
+
+SWIPE
+
+**Slide 12:**
+FOLLOW US TO LEARN MORE ABOUT YOUR BRAIN
+
+## 2026-06-13 16:33 UTC
+
+**Slide 1:**
+SUPPRESSING EMOTIONS INCREASES YOUR RISK OF DEMENTIA BY NEARLY 5X
+
+ALZHEIMER'S & DEMENTIA, DOI: 10.1002/ALZ.043899
+
+SWIPE
+
+**Slide 2:**
+In a Finnish population study of 1,137 older adults followed for over a decade, those who "fully agreed" with suppressing their emotions from others had nearly five times higher risk of developing dementia than those who "fully disagreed." The effect held after adjusting for age, gender, smoking, obesity, education, and the main genetic risk factor for Alzheimer's.
+
+**Slide 3:**
+"Suppressing emotions" here doesn't mean staying calm or not overreacting. It means the deliberate pattern of hiding emotional responses from others, pushing feelings down rather than letting them out. Participants were asked how they typically respond to adverse life events. The strongest dementia risk showed up only in those who said this was their default mode.
+
+**Slide 4:**
+The relationship was dose-dependent. People who only "fairly agreed" with suppressing their emotions showed a much smaller increase in risk. The 5x signal came from those at the extreme, the people for whom emotional suppression was a defining feature of how they cope with life.
+
+**Slide 5:**
+The likely mechanism runs through chronic stress. Suppression doesn't make the underlying stress response go away. It just removes the outlet. Cortisol stays elevated, inflammation runs higher, and the brain's stress circuits stay activated longer than they should. These are the same biological pathways that drive most modifiable dementia risk.
+
+**Slide 6:**
+The practical implication isn't to broadcast every feeling. It's that processing emotions, even quietly, does real biological work. Naming what you feel, writing it down, telling one trusted person, allowing the response to happen rather than burying it. The brain treats expressed emotion and suppressed emotion as fundamentally different physiological events.
+
+**Slide 7:**
+How a person handles their emotional life isn't just a personality trait. It's a biological exposure. This is one more piece of evidence that the inner world is shaping the brain's long-term trajectory.
+
+Comment "STUDY" and we'll send you our full breakdown of the study.
+
+## 2026-06-13 23:44 UTC
+
+**Slide 1:**
+THE RAREST FORM OF LOVE ISN'T PASSION OR COMMITMENT, IT'S HAVING A REGULATED NERVOUS SYSTEM BY YOUR SIDE
+
+SWIPE
+
+**Slide 2:**
+Neuroscience shows the body reads other bodies before the conscious mind notices anyone is in the room. The breath rate, posture, vocal tone, and micro-expressions of a partner are absorbed continuously by the parts of your brain that decide whether to relax or brace. Over time, the experience of being near them becomes its own signal, independent of what they say.
+
+**Slide 3:**
+This is the mechanism behind one of the most reliable findings in relational neuroscience: the calmest person in the room sets the regulation for everyone else. Their nervous system isn't louder, it's more stable, and stable systems pull unstable ones toward them. You don't have to do anything specific. Your body is doing the work for you.
+
+**Slide 4:**
+What most people are chasing (passion, intensity, big gestures) is downstream of something simpler. Two regulated nervous systems in the same room produce more felt safety, more honest communication, and more durable connection than two dysregulated ones, regardless of how much they "feel."
+
+**Slide 5:**
+You can't think your way to being a regulating partner. You become one by doing the work on your own system: sleep, breath, slow movement, real recovery from stress, long before you ever apply it to a relationship. The body you bring into the room is the gift you bring.
+
+**Slide 6:**
+This also explains why some relationships feel curative without any specific event making them so. Nothing dramatic happens. The other person is simply, consistently regulated, and your body slowly learns it doesn't have to brace. Over months, this rewires the nervous system in ways no conversation could.
+
+**Slide 7:**
+Love built on chemistry can feel intense and fall apart. Love built on regulation can feel quieter and last decades. The body has been keeping score the whole time.
+
+Follow @neuroglobe to learn more about your brain.
+
+## 2026-06-14 17:30 UTC
+
+**Slide 1:**
+YOUR BRAIN DOESN'T DECIDE YOU'RE HAPPY, YOUR BODY DOES
+
+SWIPE
+
+**Slide 2:**
+Neuroscience shows mood isn't generated from the top down. The brain reads continuous signals from the body (breath, temperature, posture, muscle tension, gut activity) and assembles an emotional state out of them. The feeling you call "happy" isn't a decision. It's the brain's interpretation of what your body is currently doing.
+
+**Slide 3:**
+This is why thinking your way to a better mood so often fails. You're reasoning with the output while the input the brain is actually reading (the body) stays the same. The brain isn't ignoring you. It's listening to a different source.
+
+**Slide 4:**
+This is called interoception, the brain's nonstop monitoring of internal body signals. The systems that produce emotion aren't separate from the systems that track breath rate, gut activity, and posture. They're the same systems. Change the body's signal, and the emotional reading shifts with it.
+
+**Slide 5:**
+This is why some surprisingly small inputs move mood more reliably than most mindset work. A walk. A warm drink. Sunlight on skin. A change of room. A slow exhale. None of these are placebos, they're direct inputs into the systems the brain is using to construct how you feel.
+
+**Slide 6:**
+You don't decide how you feel. Your body proposes a state, and your brain calls it an emotion. The fastest way to change the emotion is to change the proposal, from the outside in, not the inside out.
+
+Comment "BODY" and we'll send you a science-backed method for reading the body signal behind any mood, and the fast fix for each.
+
+## 2026-06-14 23:35 UTC
+
+**Slide 1:**
+WHAT ACTUALLY HAPPENS INSIDE YOUR BRAIN WHEN YOU GET LESS THAN 6 HOURS OF SLEEP
+
+SWIPE
+
+**Slide 2:**
+DURING THE SLEEP YOU CUT SHORT
+
+SLEEP TYPICALLY RUNS IN 90-MINUTE CYCLES. HOURS 1 TO 3 ARE DOMINATED BY DEEP SLOW-WAVE SLEEP, WHEN THE BRAIN FLUSHES THE MOST METABOLIC WASTE. HOURS 5 TO 7 ARE DOMINATED BY REM, WHEN MEMORY AND EMOTIONAL REGULATION GET CONSOLIDATED. CUTTING AT 6 HOURS SKIPS THE FINAL CYCLE ENTIRELY. YOU DON'T LOSE HOURS EQUALLY. YOU LOSE THE HOURS THAT FINISH THE WORK.
+
+SWIPE
+
+**Slide 3:**
+BY MORNING
+
+YOU WAKE UP WITH CHEMISTRY THAT NEVER RESET. ADENOSINE, THE MOLECULE THAT MAKES YOU FEEL TIRED, IS STILL ELEVATED. CORTISOL IS MISFIRING. GLUCOSE DELIVERY TO THE PREFRONTAL CORTEX IS MEASURABLY REDUCED. CAFFEINE MASKS THE FELT STATE. IT DOES NOT RESTORE THE BRAIN.
+
+SWIPE
+
+**Slide 4:**
+BY MID-AFTERNOON
+
+THIS IS WHEN MOST PEOPLE SAY THEY FEEL FINE, AND ON THE SURFACE, THEY ARE. THE BRAIN HAS ADAPTED THE FELT EXPERIENCE AROUND THE DEFICIT. UNDERNEATH, CORTISOL IS STILL ELEVATED, INFLAMMATION IS STILL FIRING, INSULIN SIGNALING IS STILL IMPAIRED. THE DAMAGE ISN'T IN WHAT YOU FEEL. IT'S IN WHAT THE BODY IS DOING WHILE YOU FEEL NOTHING.
+
+SWIPE
+
+**Slide 5:**
+BY EVENING
+
+EMOTIONAL REACTIVITY HAS BEEN CLIMBING ALL DAY. AFTER A SINGLE SHORT NIGHT, THE AMYGDALA (THE BRAIN'S ALARM) FIRES UP TO 60% HARDER AT MINOR TRIGGERS. YOU SNAP AT THINGS THAT WOULDN'T NORMALLY BOTHER YOU. CRAVINGS SPIKE AS THE BRAIN HUNTS FOR FAST ENERGY. WHAT FEELS LIKE "A HARD DAY" IS OFTEN THE CHEMISTRY OF A SLEEP-DEPRIVED BRAIN.
+
+SWIPE
+
+**Slide 6:**
+THE NEXT NIGHT
+
+THE BRAIN MAY TRY TO COMPENSATE: MORE INTENSE REM, DEEPER SLOW-WAVE. BUT THE CLEANUP THAT WAS MISSED THE NIGHT BEFORE CANNOT BE RECOVERED. SLEEP ARCHITECTURE STAYS DISTURBED FOR SEVERAL NIGHTS AFTER A SINGLE SHORT ONE. EACH LOST NIGHT ENTERS A RUNNING TOTAL THE BODY KEEPS FOR YOU.
+
+SWIPE
+
+**Slide 7:**
+COMPOUNDED OVER TIME
+
+CONSISTENT SLEEP UNDER 6 HOURS IS ONE OF THE MOST REPLICATED INDEPENDENT RISK FACTORS FOR DEMENTIA, CARDIOVASCULAR DISEASE, IMMUNE DYSFUNCTION, AND EARLY MORTALITY. MOST PEOPLE NEVER NOTICE THE COST, BECAUSE IT ACCUMULATES SILENTLY. SILENTLY IS THE ENTIRE PROBLEM.
+
+SWIPE
+
+**Slide 8:**
+FOLLOW US TO LEARN MORE ABOUT YOUR BRAIN
+
+## 2026-06-15 16:21 UTC
+
+**Slide 1:**
+IF YOU'RE EVER STRESSED OR ANGRY, HUM FOR 30 SECONDS. NEUROSCIENCE SHOWS IT'S ONE OF THE SIMPLEST WAYS TO REDUCE CORTISOL ALMOST INSTANTLY
+
+SWIPE
+
+**Slide 2:**
+Neuroscience shows humming is the most direct way most people have to physically stimulate their vagus nerve, the nerve that controls the body's exit from fight-or-flight. When you hum, your vocal cords vibrate. That vibration travels through your larynx, throat, and chest. Each hum is a small pulse of stimulation traveling straight into the parasympathetic system.
+
+**Slide 3:**
+This is why humming reduces cortisol so quickly. Cortisol production is regulated by your nervous system's overall state. When the vagus nerve fires, the parasympathetic side takes over, and cortisol drops within minutes. Humming gets you there faster than almost any other technique because it stimulates the nerve directly rather than asking the brain to calm down first.
+
+**Slide 4:**
+Additionally, when you hum, you naturally extend your exhale, and a long exhale is the single strongest signal your nervous system reads as "you are safe." The body cannot stay in fight-or-flight while breathing out slowly. Humming forces this without you having to think about it.
+
+**Slide 5:**
+Humming with the mouth closed also pushes air through your sinuses, where the body produces nitric oxide. Nitric oxide dilates your blood vessels and lowers your blood pressure, which creates the physical feeling of calm that often arrives within the first round. Most people have never heard of this pathway. It runs quietly underneath the felt experience of relaxation.
+
+**Slide 6:**
+In real moments of anger or panic, the thinking part of your brain is partially offline. You can't reason your way out because the reasoning machinery is what just went down. Humming skips thinking entirely. It uses vibration and breath to flip the autonomic switch from below.
+
+**Slide 7:**
+The practice is simple. Close your mouth. Inhale gently through your nose. Hum on the exhale until your breath is fully out. Repeat for 30 seconds. The exhale calms you. The vibration stimulates the vagus nerve. The nitric oxide opens your blood vessels. All three happen at once, every time.
+
+Comment "HUM" and we'll send you the exact do's and don'ts when humming so it actually calms your nervous system.
+
+## 2026-06-15 23:37 UTC
+
+**Slide 1:**
+7 COGNITIVE BIASES THAT SECRETLY CONTROL YOUR LIFE
+
+SWIPE
+
+**Slide 2:**
+CONFIRMATION BIAS
+
+YOUR BRAIN DOESN'T LOOK FOR THE TRUTH. IT LOOKS FOR WHAT IT ALREADY BELIEVES IS TRUE, AND QUIETLY THROWS OUT THE REST.
+
+SWIPE
+
+**Slide 3:**
+SUNK COST FALLACY
+
+YOU DON'T STAY BECAUSE IT'S WORKING. YOU STAY BECAUSE LEAVING WOULD MEAN ADMITTING WHAT IT ALREADY COST YOU.
+
+SWIPE
+
+**Slide 4:**
+DUNNING-KRUGER EFFECT
+
+CONFIDENCE IS HIGHEST WHERE KNOWLEDGE IS THINNEST. THE PEOPLE MOST SURE OF THEMSELVES USUALLY KNOW THE LEAST.
+
+SWIPE
+
+**Slide 5:**
+AVAILABILITY HEURISTIC
+
+YOU JUDGE HOW LIKELY SOMETHING IS BY HOW EASILY YOU CAN PICTURE IT. PLANE CRASHES FEEL MORE LIKELY THAN CAR CRASHES FOR EXACTLY THIS REASON.
+
+SWIPE
+
+**Slide 6:**
+THE SPOTLIGHT EFFECT
+
+EVERYONE IS TOO BUSY STARRING IN THEIR OWN STORY TO NOTICE THE DETAILS OF YOURS. THE EMBARRASSMENT LIVES IN YOUR HEAD, NOT THEIRS.
+
+SWIPE
+
+**Slide 7:**
+NEGATIVITY BIAS
+
+BAD HITS YOUR BRAIN HARDER THAN GOOD. ONE HARSH COMMENT ALWAYS OUTWEIGHS TEN KIND ONES.
+
+SWIPE
+
+**Slide 8:**
+STATUS QUO BIAS
+
+STAYING THE SAME FEELS SAFER THAN CHANGING, EVEN WHEN IT ISN'T. INACTION IS STILL A DECISION.
+
+SWIPE
+
+**Slide 9:**
+FOLLOW US TO LEARN MORE ABOUT YOUR BRAIN
+
+## 2026-06-16 16:23 UTC
+
+**Slide 1:**
+ONE DAILY GLASS OF PURE FRUIT JUICE SIGNIFICANTLY LOWERED DEPRESSION SCORES IN A NEW STUDY
+
+BRITISH JOURNAL OF NUTRITION, DOI: 10.1017/S0007114526107569
+
+SWIPE
+
+**Slide 2:**
+In a 4-week randomized trial, healthy adults who weren't eating much fruit added one daily glass of 100% fruit juice or a smoothie to their diets. By the end, their depression scores had dropped significantly more than the control group's.
+
+**Slide 3:**
+Fruit isn't just fiber. It's also a dense source of plant compounds like polyphenols and flavonoids that directly influence brain chemistry and lower inflammation. When you drink juice, you lose the fiber. But you get those compounds faster and in higher concentration. For the brain, that trade may matter more than the nutrition world has admitted.
+
+**Slide 4:**
+This doesn't mean juice cures depression. It means that for someone barely eating any fruit, adding one daily glass is a real intervention. For someone already eating six servings a day, the bump is probably small.
+
+**Slide 5:**
+The hard line between "real food" and "juice" doesn't hold up well in the mood data. For someone who barely touches fruit, a single daily glass may be doing more for the brain than a decade of nutritional advice has allowed for.
+
+Comment "STUDY" and we'll send you our full breakdown of the study.
+
+## 2026-06-16 23:55 UTC
+
+**Slide 1:**
+TAKING LIFE TOO SERIOUSLY LITERALLY MAKES YOU DUMBER
+
+SWIPE
+
+**Slide 2:**
+Neuroscience shows the smartest version of your brain goes offline when you stay too serious for too long. The regions responsible for creativity, planning, and good decisions need a baseline of perceived safety to function. Sustained pressure trades them for the regions that just want to survive the next ten minutes.
+
+**Slide 3:**
+Under chronic seriousness, the amygdala, the brain's threat detector, stays activated, and the prefrontal cortex, which handles abstract thinking, problem-solving, and creative work, loses blood flow and processing priority. The shift is gradual but real. The longer the brain runs in threat mode, the dumber it functionally becomes.
+
+**Slide 4:**
+What feels like being "more responsible" is the trap. Treating every task, message, or interaction as high-stakes activates the same circuits as actual danger. You think you're being careful. You're actually narrowing the brain into the version that handles emergencies, tunnel vision, rigid thinking, hyper-focus on what could go wrong. Innovation and insight don't survive in this mode.
+
+**Slide 5:**
+The opposite move is the actual lever. Lightness and lowering perceived stakes, even on situations that genuinely matter, shift the brain back into the network that produces insight. Studies on creativity, divergent thinking, and problem-solving all converge on the same finding: cognitive flexibility expands the moment perceived pressure drops.
+
+**Slide 6:**
+This doesn't mean care less, it means care without putting the threat system on high alert. Naming the situation as lower-stakes than it feels ("this is just a meeting," "this is just a draft," "this is just one decision") is enough to shift activation back toward the smarter part of the brain. Same effort, different mode. Better output, less depletion.
+
+**Slide 7:**
+Seriousness is the brain's survival mode. Playfulness is the brain's performance mode. The people who think fastest, adapt best, and solve the hardest problems refuse to let their threat system run the show.
+
+Follow @neuroglobe to learn more about your brain.
+
+## 2026-06-17 16:28 UTC
+
+**Slide 1:**
+UNRESOLVED UNCERTAINTY ALWAYS KEEPS YOUR BRAIN SCANNING FOR THREATS ON A LOOP, UNLESS YOU INTERRUPT THE CYCLE
+SWIPE
+
+**Slide 2:**
+Neuroscience shows the brain treats unresolved as unsafe. Anything you haven't closed stays active in the background as a low-grade threat signal the system keeps trying to resolve. The scanning isn't a sign you're overthinking. It's the brain doing exactly what it was built to do with anything it can't mark closed.
+
+**Slide 3:**
+The amygdala (the brain's threat detector) fires not just at real danger but at unresolved uncertainty itself. Brain imaging studies show that people with low tolerance for not-knowing have measurably higher activation in this region, even in completely safe situations. The brain is treating the uncertainty as the danger.
+
+**Slide 4:**
+What feels like productive worry is the trap. Running scenarios, checking your phone, googling the symptom, replaying the conversation, all of these feel like solutions. They aren't. They're brief relief followed by a stronger return of the loop, because each one teaches the brain that uncertainty is something to be escaped.
+
+**Slide 5:**
+Resolving one specific uncertainty doesn't break the cycle either. The brain quickly finds the next thing to scan for. The pattern isn't about the content. It's about the relationship with not-knowing itself, and until that relationship changes, the next worry is already loading.
+
+**Slide 6:**
+The interrupt that actually works is small reps of sitting still inside the uncertainty. Naming what's happening ("I'm in the loop"). Waiting longer than feels tolerable before reaching for a fix. Letting the discomfort pass without acting on it. Each rep is a piece of evidence the brain files as: the not-knowing wasn't dangerous after all.
+
+**Slide 7:**
+Your brain doesn't need every question answered. It needs proof that uncertainty is survivable. The people who sleep well at night with open loops have trained the part of the brain that can hold the open loop without panicking.
+
+Comment "LOOP" and we'll send you the exact 4-step method to break the uncertainty spiral the next time your brain won't let something go.
+
+## 2026-06-17 17:23 UTC
+
+**Slide 1:**
+YOUR BRAIN HAS ONE STRUCTURE THAT KEEPS GROWING NEW CELLS YOUR ENTIRE LIFE, AND THE COMPOUNDS THAT BUILD IT HAVE BEEN DOCUMENTED IN MEDICINE FOR OVER 2,000 YEARS
+SWIPE
+
+**Slide 2:**
+Neuroscience shows the hippocampus is the only major brain structure that produces new neurons throughout adulthood. This process, called neurogenesis, directly shapes memory, learning, emotional regulation, and how your brain adapts to new experiences across a lifetime.
+
+**Slide 3:**
+What drives neurogenesis isn't intelligence or effort. It's a specific protein called nerve growth factor (NGF), which signals neurons to grow, repair, and form stronger connections. NGF availability declines with age, chronic stress, poor sleep, and low-grade inflammation.
+
+**Slide 4:**
+Most foods don't influence NGF in a meaningful way. The compounds that do reliably increase NGF expression are a small group of molecules studied across cellular, animal, and human research, and most of them come from a single source.
+
+**Slide 5:**
+Lion's Mane mushroom contains two classes of compounds, hericenones and erinacines, that have been shown to stimulate NGF synthesis directly. This is biologically rare. Most natural compounds influence the brain through neurotransmitters, but Lion's Mane operates at the structural level, affecting how neurons are built and maintained.
+
+**Slide 6:**
+The implication is that protecting your hippocampus isn't just about avoiding decline. It's about actively feeding the one system in your brain that keeps generating new capacity, and the inputs you give it now compound across decades of cognitive performance.
+
+**Slide 7:**
+Lion's Mane is the foundation of @feelyvb's Align blend, dosed at 980mg per serving and grown in the U.S. under USDA Organic standards. If you want to support the system that keeps your brain adaptable, this is the blend the research has spent the most time validating.
+
+## 2026-06-18 00:58 UTC
+
+**Slide 1:**
+THE NEUROSCIENCE OF HEARTBREAK: WHY YOUR BRAIN TREATS REJECTION AND LONELINESS LIKE PHYSICAL PAIN
+SWIPE
+
+**Slide 2:**
+THE SAME BRAIN REGIONS FIRE AS DURING PHYSICAL PAIN
+SOCIAL REJECTION ACTIVATES THE EXACT AREAS OF THE BRAIN THAT PROCESS PHYSICAL INJURY. THERE IS NO METAPHOR IN "A BROKEN HEART", THE BODY IS USING ITS PAIN SYSTEM TO HANDLE THE LOSS. HEARTBREAK IS A WOUND THE BRAIN IS TREATING LIKE ANY OTHER WOUND.
+SWIPE
+
+**Slide 3:**
+YOUR BODY CAN ACTUALLY START HURTING
+HEARTBREAK PRODUCES MEASURABLE PHYSICAL SYMPTOMS: CHEST TIGHTNESS, BODY ACHES, FATIGUE, A DROP IN IMMUNE FUNCTION. THE BODY ISN'T BEING DRAMATIC. IT'S RUNNING AN INJURY RESPONSE.
+SWIPE
+
+**Slide 4:**
+IT LOOKS LIKE WITHDRAWAL FROM A SUBSTANCE
+THE BRAIN PROCESSED YOUR ATTACHMENT TO THAT PERSON USING ITS ADDICTION CIRCUITRY. WHEN THE SOURCE IS SUDDENLY GONE, THE SAME CHEMISTRY THAT DRIVES DRUG WITHDRAWAL KICKS IN: RESTLESSNESS, CRAVINGS, AN OBSESSIVE PULL TOWARD THE MISSING SOURCE. YOU'RE IN A CHEMICAL WITHDRAWAL STATE THE BRAIN WAS NEVER ASKED TO HANDLE GRACEFULLY.
+SWIPE
+
+**Slide 5:**
+THE REWARD SYSTEM GOES DIM
+THE PERSON YOU LOST WAS A MAJOR SOURCE OF DOPAMINE. THEIR ABSENCE DROPS THE BASELINE OF THE SYSTEM THAT MAKES ORDINARY THINGS FEEL WORTH DOING. THIS IS WHY FOOD TASTES FLATTER, WORK FEELS HEAVIER, AND THE WORLD LOOKS WASHED OUT FOR WEEKS.
+SWIPE
+
+**Slide 6:**
+MEMORY TURNS INTRUSIVE
+THE BRAIN KEEPS REPLAYING SCENES, CONVERSATIONS, AND SMALL DETAILS FOR WEEKS AFTER A LOSS BECAUSE IT'S RUNNING A SEARCH. IT'S TRYING TO FIND THE MISSING PERSON IN ITS PREDICTIVE MODEL OF THE WORLD. THE INTRUSIVE THOUGHTS AREN'T SENTIMENTALITY, THEY'RE THE BRAIN PATTERN-MATCHING AGAINST AN ABSENCE IT CAN'T YET ACCEPT AS PERMANENT.
+SWIPE
+
+**Slide 7:**
+RECOVERY RUNS ON BIOLOGICAL TIME
+HEARTBREAK HEALS ON THE BRAIN'S TIMELINE, NOT THE HEART'S. THE REWARD SYSTEM REBOOTS, THE THREAT CIRCUITS QUIET DOWN, AND THE PREDICTION MODEL UPDATES, ALL OF IT SLOWLY, MOSTLY OUTSIDE YOUR CONTROL. TRYING TO TALK YOURSELF OUT OF GRIEF WORKS ABOUT AS WELL AS TRYING TO TALK YOURSELF OUT OF A BROKEN ARM.
+SWIPE
+
+**Slide 8:**
+FOLLOW US TO LEARN MORE ABOUT YOUR BRAIN
+
+## 2026-06-18 16:23 UTC
+
+**Slide 1:**
+NEW RESEARCH HAS IDENTIFIED THE EXACT AMOUNT OF SLEEP WHERE YOUR BODY AGES THE SLOWEST: 6.4 TO 7.8 HOURS
+NATURE, DOI: 10.1038/S41586-026-10524-5
+SWIPE
+
+**Slide 2:**
+Using data from the UK Biobank, researchers built 23 biological aging clocks across 17 organ systems, measuring brain, heart, kidney, liver, and immune aging at the molecular level. The relationship between sleep duration and aging across nearly every system formed a U: both too little sleep and too much sleep accelerated aging. The lowest-aging window was 6.4 to 7.8 hours.
+
+**Slide 3:**
+This is one of the most multi-system looks at sleep and aging ever produced. Most prior research measured one outcome, typically mortality or heart risk. This study measured aging itself, separately, in nearly every major tissue. The same range minimized aging across systems, which is a strong signal.
+
+**Slide 4:**
+The shape of the curve matters more than the midpoint. Aging accelerated sharply below 6 hours, the well-established short-sleep penalty. But it also rose at the long end. Sleeping more than 8 hours regularly was associated with faster aging across multiple organs, particularly when paired with poor sleep quality.
+
+**Slide 5:**
+The brain-specific finding tracks the same pattern. The protective effect of the 6.4–7.8 window was visible in regions tied to memory, executive function, and emotion regulation, the structures most relevant to long-term cognitive health.
+
+**Slide 6:**
+Sleeping more than 8 hours regularly is often a marker of underlying disease (depression, chronic inflammation, sleep apnea) rather than the cause of accelerated aging. Either way, sustained sleep well outside the window is a flag worth investigating, not a guideline worth defending.
+
+**Slide 7:**
+The right amount of sleep for biological aging is narrower than the "7 to 9 hours" guideline most people anchor to. For most people, the longevity window lives between 6 and a half and just under 8 hours, and consistency inside that range matters more than which end of it you favor.
+
+Comment "STUDY" and we'll send you our full breakdown of the study.
+
+## 2026-06-18 23:31 UTC
+
+**Slide 1:**
+ATHLETES WHO VISUALIZE CONSISTENTLY OUTPERFORM THOSE WHO ONLY TRAIN BECAUSE THE BRAIN CAN'T TELL THE DIFFERENCE BETWEEN REAL AND IMAGINED PRACTICE
+
+SWIPE
+
+**Slide 2:**
+Neuroscience shows the brain doesn't have a separate system for "imagining" and "doing." When you vividly picture yourself performing a movement, the same regions that control the real movement fire in nearly the same pattern. From the brain's perspective, mental rehearsal is rehearsal.
+
+**Slide 3:**
+The kind of imagining that produces this effect isn't casual. Daydreaming or vaguely picturing something doesn't activate the motor system in the same way. What does is deliberate, vivid mental rehearsal: running the action in detail, at real speed, with the same focus you'd bring to physical practice. Half-attentive imagining produces almost no rewiring at all.
+
+**Slide 4:**
+Studies on basketball players, pianists, surgeons, and high performers have repeatedly shown that real mental practice produces measurable performance gains on its own, and dramatically larger gains when paired with physical practice. The brain pathways involved in the skill physically strengthen, whether the body actually moved or not.
+
+**Slide 5:**
+The mechanism is repetition. The brain builds skill by firing the same neural patterns over and over until they become efficient, a process called long-term potentiation, the brain's way of locking in what it just did. That firing happens whether you're physically moving or vividly imagining the movement. The signal that says "do this again" doesn't check where the input came from.
+
+**Slide 6:**
+The version that actually works is more specific than people think. Visualize from inside your own body, not watching yourself from outside. Include what you'd see, hear, and feel physically. Run the scene at real speed, not in fast-forward. The richer the detail, the more the brain treats it as real input, and the stronger the rewiring becomes. Five minutes a day, consistently, beats an hour once a week.
+
+**Slide 7:**
+Mental rehearsal isn't a substitute for physical practice. It's a multiplier of it. The athletes, performers, and high-stakes professionals who rely on it are using one of the few learning levers the brain responds to even when the body is still.
+
+Follow @neuroglobe to learn more about your brain.
+
+## 2026-06-19 16:38 UTC
+
+**Slide 1:**
+YOUR BRAIN DOESN'T CARE HOW MUCH YOU DID, IT CARES HOW HARD YOU PUSHED. 10 MINUTES OF HIGH-INTENSITY EXERCISE DOES MORE FOR THE BRAIN THAN AN HOUR WALKING ON THE TREADMILL
+
+SWIPE
+
+**Slide 2:**
+Neuroscience shows the brain doesn't adapt to time spent. It adapts to intensity reached. When you push hard enough that the body has to scramble (heart pounding, muscles burning, breath ragged) the system reads this as "we are at our edge" and starts releasing the signals that build new brain tissue. Comfortable exercise doesn't generate those signals. It just keeps you moving.
+
+**Slide 3:**
+The molecule doing the actual work is called BDNF, brain-derived neurotrophic factor. It is the body's growth signal for the brain. New neurons. Stronger connections. Better memory. Slower aging. BDNF is released primarily in response to high effort, not duration. Walking on a treadmill barely moves it. A few minutes of true exertion releases it in waves.
+
+**Slide 4:**
+When you push past your comfort zone, your muscles produce lactate. Lactate crosses into the brain and triggers BDNF release directly. This is the bridge between physical effort and brain growth. Low-intensity work produces almost no lactate, which is why it builds endurance but not brain plasticity. The hard reps are the brain reps.
+
+**Slide 5:**
+The same principle holds for everything else the brain learns. Skills, languages, knowledge, emotional growth, none of it adapts to time spent. It adapts to time spent at the edge. Two hours of light reading does less than thirty minutes of difficult reading. A year of casual practice does less than a month at the limit of your skill. The brain only changes when it is forced to.
+
+**Slide 6:**
+This is why most people plateau in everything. They confuse motion with progress. They go to the gym for an hour but never push hard. They read for three hours but never struggle with the material. They have ten conversations a day but never have one that scares them. The body stays busy. The brain doesn't change because it was never actually challenged.
+
+**Slide 7:**
+Intensity is the catalyst. Duration is the multiplier. Without intensity, time stops counting. Ten minutes of hard effort changes you. Sixty minutes of comfortable effort maintains you. Pick anything in your life and ask one question: am I actually pushing here, or just spending time?
+
+Comment "CIRCUIT" and we'll send you a 10-minute no-equipment workout designed to spike BDNF, and push your brain & body to the limit.
+
+## 2026-06-20 01:02 UTC
+
+**Slide 1:**
+WHAT ACTUALLY HAPPENS INSIDE YOUR BRAIN WHEN YOU TRY SOMETHING GENUINELY NEW
+
+SWIPE
+
+**Slide 2:**
+THE FIRST TIME
+THE BRAIN TREATS IT AS A GENUINE THREAT. STRESS CHEMISTRY FLOODS THE BODY, THE PREFRONTAL CORTEX GOES PARTIALLY OFFLINE, THE AMYGDALA RUNS THE SHOW. WHAT FEELS DISPROPORTIONATELY TERRIFYING ISN'T WEAKNESS, IT'S THE BRAIN ENCODING THE EXPERIENCE WITH MAXIMUM INTENSITY BECAUSE IT DOESN'T YET KNOW HOW THIS ENDS.
+
+SWIPE
+
+**Slide 3:**
+THE SECOND TIME
+THE ALARM STILL FIRES, BUT THE BRAIN HAS A PRIOR NOW: "I SURVIVED ONCE." THE NOVELTY NO LONGER REWARDS THE EFFORT, BUT THE DISCOMFORT STILL COSTS. THIS IS THE MOST DANGEROUS QUIT POINT. MOST PEOPLE STOP HERE WITHOUT REALISING THEY WERE ONE REP AWAY FROM THE REWIRING BEGINNING.
+
+SWIPE
+
+**Slide 4:**
+THE FIFTH TIME
+NEW CONNECTIONS ARE FORMING. THE BRAIN STARTS PREDICTING THE BEHAVIOR RATHER THAN ALARMING AT IT, AND THE THREAT RESPONSE MEASURABLY DROPS. CONFIDENCE BEGINS TO EMERGE, SMALL, BUT REAL. THE FIRST HINT THAT THE REWIRING IS REAL AND NOT JUST IMAGINED.
+
+SWIPE
+
+**Slide 5:**
+THE TENTH TIME
+THE NEURAL PATHWAY IS STRENGTHENING. WHAT USED TO COST MASSIVE METABOLIC ENERGY NOW RUNS AT A FRACTION OF THE COST. THE DISCOMFORT HASN'T DISAPPEARED. IT HAS SHIFTED FROM "THIS IS DANGEROUS" TO "THIS IS EFFORTFUL."
+
+SWIPE
+
+**Slide 6:**
+THE TWENTIETH TIME
+THE BEHAVIOR IS BECOMING AUTOMATIC. THE THE BRAIN'S HABIT SYSTEM HAS TAKEN OVER MUCH OF THE LOAD FROM CONSCIOUS CONTROL. WHAT ONCE REQUIRED WILLPOWER NOW REQUIRES BARELY ANY. THE THING THAT WAS ONCE TERRIFYING IS JUST SOMETHING YOU DO.
+
+SWIPE
+
+**Slide 7:**
+THE HUNDREDTH TIME
+WHAT WAS ONCE A STRETCH IS NOW YOUR BASELINE. THE CAPACITY IS PART OF WHO YOU ARE, EMBEDDED SO DEEPLY THE BRAIN BARELY TAGS IT AS EFFORTFUL ANYMORE. THE ORIGINAL FEAR IS ALMOST INACCESSIBLE. AND THE BRAIN, ALREADY UPDATED, HAS STARTED LOOKING FOR THE NEXT EDGE TO GROW AGAINST.
+
+SWIPE
+
+**Slide 8:**
+comfort zone
+
+FOLLOW US TO LEARN MORE ABOUT YOUR BRAIN
+
+## 2026-06-20 16:18 UTC
+
+**Slide 1:**
+BEING AFRAID OF GETTING OLDER LITERALLY CAUSES YOU TO AGE FASTER
+
+PSYCHONEUROENDOCRINOLOGY, DOI: 10.1016/J.PSYNEUEN.2025.107704
+
+SWIPE
+
+**Slide 2:**
+In a recent study of 726 women, those who reported stronger anxiety about aging showed accelerated biological aging on a leading cellular aging measure that tracks how fast the body is breaking down at the molecular level. A faster pace, sustained over years, adds up to years of additional biological age.
+
+**Slide 3:**
+The subdomain driving the effect was health-related fears: worry about future illness, disability, and physical decline. Worries about appearance and fertility did not show the same association. It's a body-focused stress response, not a vanity-driven one.
+
+**Slide 4:**
+Sustained worry about the body activates the same physiological systems (cortisol, inflammation, and the body's stress response) that accelerate cellular aging when constantly engaged. The fear of decline literally becomes a biological driver of decline.
+
+**Slide 5:**
+The directionality almost certainly runs both ways. People aging faster may notice it and become more anxious. People more anxious about aging may speed it up through stress. Whichever direction is dominant, the loop is real, and breaking it anywhere likely helps.
+
+**Slide 6:**
+How a person relates to their own aging appears to shape how the body actually ages. Cognitive reframing, acceptance-based practices, and exposure to older adults aging well may be biologically protective.
+
+Comment "STUDY" and we'll send you our full breakdown of the study.
+
+## 2026-06-21 00:27 UTC
+
+**Slide 1:**
+LAUGHTER IS ANTI-INFLAMMATORY. CRYING IS REGULATING. STRESS IS ADAPTIVE. ANGER IS MOBILIZING. EVERY EMOTION YOU HAVE IS A BIOLOGICAL NECESSITY
+
+SWIPE
+
+**Slide 2:**
+Neuroscience shows there's no such thing as a pointless emotion. Each one is a coordinated biological response, designed to move you toward something, away from something, or through something. The ones culture labels "negative" aren't malfunctions. They're your biology doing exactly what it was built to do.
+
+**Slide 3:**
+The problem isn't that you feel emotions. It's that you've been taught to suppress half of them. Sadness gets called weakness. Anger gets called immaturity. Fear gets called overreaction. But suppression doesn't end the biological process, it interrupts it. The signal keeps running, just without the response that would let it complete.
+
+**Slide 4:**
+The pattern holds across the full emotional range. Sadness slows you down so the brain can process loss and update its model of the world. Fear sharpens attention and recruits the systems that keep you safe. Disgust protects you from contamination and harm. Even embarrassment exists for a reason, it recalibrates your standing in a group when something has gone wrong. None of these are errors.
+
+**Slide 5:**
+Emotions aren't generated by your thoughts about a situation, they're generated by your body's response to it, and the thoughts follow. This is why trying to think yourself out of an emotion almost never works. You're trying to argue with a signal coming from a layer underneath your reasoning.
+
+**Slide 6:**
+Stop fighting the signal and let it complete. Laugh fully. Cry fully. Feel the anger move through without performing it on someone. Sit with the sadness long enough for the body to finish what it was doing. Emotions are wave-shaped, they rise, peak, and fall on their own timeline. Suppression flattens the curve and leaves the system stuck mid-process.
+
+**Slide 7:**
+Your emotions aren't malfunctions to manage. They're biological processes designed to keep you alive, connected, and able to respond to what's happening. The healthiest people are the ones who let every emotion do its job.
+
+Follow @neuroglobe to learn more about your brain.
+
+## 2026-06-21 16:28 UTC
+
+**Slide 1:**
+SOME BRAINS PHYSICALLY CAN'T SIT STILL. THEY SCAN, ANALYZE, AND ANTICIPATE. NEUROSCIENCE CALLS IT HYPERVIGILANT COGNITION, AND MOST PEOPLE MISUNDERSTAND IT ENTIRELY
+
+SWIPE
+
+**Slide 2:**
+Neuroscience shows hypervigilant cognition isn't a personality trait, a habit, or a discipline problem. It's a learned state. The brain has been conditioned, usually early, that the environment is unpredictable enough to require constant monitoring. The scanning, the tracking of tone, the anticipation of what might go wrong: none of it is a choice. It's the system continuing to run a survival pattern that used to keep someone safe.
+
+**Slide 3:**
+This isn't ADHD, ADHD is a brain hunting for stimulation because routine doesn't engage the reward system enough. Hypervigilance is the opposite: a brain that's hyper-engaged because it learned every environment could turn dangerous. It's not overthinking either, which lives in your head. Hypervigilance lives in the room, scanning faces, tones, and shifts in energy before anyone has said a word.
+
+**Slide 4:**
+Underneath it is a sensitized threat-detection system. The body stays in low-grade sympathetic activation, the part of the nervous system that prepares for action. The brain spends resources scanning the environment that other brains spend on rest, focus, or play. The cost shows up as exhaustion that no amount of sleep ever quite fixes.
+
+**Slide 5:**
+But the same system that exhausts you is the one that makes you unusually skilled. Hypervigilant brains tend to read rooms faster, anticipate mood shifts earlier, and catch micro-changes in tone that other people miss entirely.
+
+**Slide 6:**
+Hypervigilant brains can't shut the scanning off, and trying to suppress it makes the system run harder. What actually works is teaching the nervous system, one small experience at a time, that not every environment requires this level of vigilance. Calm isn't a personality you have or don't, it's a state the body learns through repeated, low-stakes evidence that nothing bad is happening.
+
+**Slide 7:**
+Hypervigilant brains are ones that learned to survive an environment that demanded it. The work isn't becoming less aware. It's giving the nervous system enough new evidence in small doses that it can finally stop being on call.
+
+Comment "VIGILANT" and we'll send you 5 specific ways to turn a hypervigilant brain into your biggest advantage.
+
+## 2026-06-21 23:47 UTC
+
+**Slide 1:**
+THE FORMULA FOR A PERFECT DAY ACCORDING TO NEUROSCIENCE
+
+SWIPE
+
+**Slide 2:**
+10 MINUTES OF MORNING SUNLIGHT
+
+SUNLIGHT IN YOUR EYES WITHIN 60 MINUTES OF WAKING, NOT THROUGH A WINDOW. THIS ANCHORS YOUR CIRCADIAN RHYTHM, WHICH SETS THE QUALITY OF YOUR SLEEP, MOOD, AND FOCUS FOR THE REST OF THE DAY.
+
+SWIPE
+
+**Slide 3:**
+30 MINUTES OF MOVEMENT
+
+A BRISK WALK, A STRENGTH SESSION, ANYTHING THAT ELEVATES YOUR HEART RATE. EXERCISE IS THE SINGLE MOST REPLICATED BRAIN-BENEFIT INTERVENTION IN THE LITERATURE. IT BUILDS NEW NEURONS, LIFTS MOOD, SHARPENS FOCUS, AND PROTECTS AGAINST COGNITIVE DECLINE.
+
+SWIPE
+
+**Slide 4:**
+0.8 GRAMS OF PROTEIN PER POUND OF BODYWEIGHT
+
+SPREAD ACROSS THE DAY. PROTEIN PROVIDES THE PRECURSORS YOUR BRAIN USES TO MANUFACTURE DOPAMINE AND SEROTONIN, THE CHEMISTRY BEHIND MOTIVATION AND MOOD. STABLE BLOOD SUGAR, STABLE THINKING.
+
+SWIPE
+
+**Slide 5:**
+2 TO 4 LITRES OF WATER
+
+THE BRAIN IS ROUGHLY 75% WATER. EVEN 1 TO 2% DEHYDRATION MEASURABLY REDUCES ATTENTION, WORKING MEMORY, AND REACTION TIME. MOST PEOPLE WHO FEEL MENTALLY FOGGY BY MID-AFTERNOON ARE JUST DEHYDRATED.
+
+SWIPE
+
+**Slide 6:**
+20 MINUTES IN NATURE
+
+CORTISOL, THE BRAIN'S MAIN STRESS CHEMISTRY, MEASURABLY DROPS WITHIN TWENTY MINUTES OF BEING IN GREEN OR NATURAL SPACE. CONCRETE AND SCREENS DRAIN ATTENTION. TREES AND OPEN SKY RESTORE IT.
+
+SWIPE
+
+**Slide 7:**
+ONE MEANINGFUL IN-PERSON INTERACTION
+
+FACE-TO-FACE CONTACT WITH ANOTHER HUMAN, NOT A SCREEN. SOCIAL ENGAGEMENT IS AMONG THE STRONGEST PREDICTORS OF COGNITIVE RESILIENCE IN LATE LIFE, AND LONELINESS MEASURABLY ACCELERATES BRAIN AGING IN ITS OWN RIGHT. THE BRAIN TREATS REAL HUMAN CONTACT AS A NUTRIENT, NOT A LUXURY.
+
+SWIPE
+
+**Slide 8:**
+10 MINUTES OF STILLNESS
+
+NO PHONE, NO PODCAST, NO SCROLLING. THE BRAIN'S DEFAULT MODE NETWORK NEEDS UNSTRUCTURED DOWNTIME TO CONSOLIDATE MEMORY, REGULATE EMOTION, AND RESET THE AMYGDALA. BOREDOM ISN'T WASTED TIME. IT'S MAINTENANCE.
+
+SWIPE
+
+**Slide 9:**
+7 TO 9 HOURS OF SLEEP
+
+EVERY INPUT ON THIS LIST GETS QUIETLY CANCELLED BY CHRONIC SHORT SLEEP, THE BRAIN RUNS THE MAINTENANCE WORK THAT PROTECTS THE REST OF ITSELF DURING THE HOURS YOU WEREN'T AWAKE. THE NON-NEGOTIABLE FOUNDATION.
+
+SWIPE
+
+**Slide 10:**
+FOLLOW US TO LEARN MORE ABOUT YOUR BRAIN
+
+## 2026-06-23 16:19 UTC
+
+**Slide 1:**
+REGULARLY YELLING AT CHILDREN LEAVES A PHYSICAL MARK ON THE DEVELOPING BRAIN
+
+DEVELOPMENT AND PSYCHOPATHOLOGY, DOI: 10.1017/S0954579420001716
+CHILD DEVELOPMENT, DOI: 10.1111/CDEV.12143
+
+SWIPE
+
+**Slide 2:**
+In a long-term study of 94 children tracked from age 2.5 to 16, those who experienced persistent harsh parenting (repeated yelling, shouting, occasional spanking) across early childhood had measurably smaller gray matter in two specific brain regions when scanned as teenagers: the prefrontal cortex and the amygdala.
+
+**Slide 3:**
+The prefrontal cortex is the brain's control center, governing impulse control, decision-making, and the ability to manage your own emotions. The amygdala processes fear and stores emotional memory. Smaller volumes in either region are linked to higher anxiety, more difficulty regulating emotion, and a harder time recovering from stress.
+
+**Slide 4:**
+"Harsh parenting" in this study wasn't abuse. It was more common actions, like yelling when rules are broken, shouting in frustration, occasional spanking during punishment, and verbally insulting a child, calling them "dumb" or "lazy." Behaviors most parents have used and most cultures consider normal discipline.
+
+**Slide 5:**
+Another study added the second half of the picture. Yelling at a 13-year-old made conduct problems worse the following year, meaning more lying, stealing, fighting, school misbehavior, not better. A cycle was formed: yelling triggered worse behavior, which triggered more yelling, which tightened year over year.
+
+**Slide 6:**
+None of this means parents who occasionally lose their temper are harming their kids. The brain finding came from a pattern: consistent yelling across years, not isolated moments. The clearest takeaway is that yelling functions less like discipline and more like emotional overflow, and the developing brain is paying attention either way.
+
+Follow @neuroglobe to learn more about the brain.
+
+## 2026-06-24 00:44 UTC
+
+**Slide 1:**
+THE HIGHEST PERFORMERS DON'T RELY ON POSITIVE SELF TALK UNDER PRESSURE. THEY USE SOMETHING FAR MORE POWERFUL, AND NEUROSCIENCE SHOWS IT CALMS THE BRAIN ALMOST INSTANTLY
+
+SWIPE
+
+**Slide 2:**
+Neuroscience shows that under acute pressure, the brain processes language differently than it does at rest. Aspirational thoughts get read as predictions, and predictions get checked against the body's actual signals. This is why the highest performers have converged on a different tool entirely: neutral facts. Instead of telling yourself you'll win, you describe what is already true in the present moment. "My feet are on the ground. My hands are steady. I have trained for this exact situation." No prediction. No belief required. Just observation.
+
+**Slide 3:**
+This is why positive self-talk often backfires at the worst possible moment. "I'm going to crush this" or "I'm the best in the room" fails because your body is already producing physical evidence to the contrary: racing heart, shallow breath, tight stomach. The brain treats those physical signals as data and the words as theory. Theory loses. The harder you push the positive thought, the more obvious the contradiction becomes.
+
+**Slide 4:**
+Neutral facts bypass this entirely. There is nothing to disbelieve because there is nothing being predicted. You are not asking the brain to accept something. You are pointing it at what is already happening. This shifts attention from the future, where pressure lives, to the present, where action happens. The same regions of the brain that were spinning out begin to settle, because they finally have something solid to anchor to.
+
+**Slide 5:**
+Positive self-talk has its place. In low-stakes preparation, in training, in the slow work of building belief over months and years, it does real work. The brain is more open to it when there is no acute physical pressure to contradict it. But the moment the stakes spike, positive thoughts stop being readable as true, and neutral facts become the only language the brain can still process clearly.
+
+**Slide 6:**
+Before any high-pressure moment, prepare three observable facts. They have to be undeniable. "My feet are planted. My breath is moving. I have done this before." Repeat them slowly. The pressure does not disappear. But the brain shifts from trying to believe something to noticing something, and that single shift is what allows performance to actually happen.
+
+Comment "NEUTRAL" and we'll send you a simple checklist for building neutral facts that actually hold under pressure.
+
+## 2026-06-24 16:22 UTC
+
+**Slide 1:**
+THE RELATIONSHIP BETWEEN DOPAMINE AND TESTOSTERONE: WHY DRIVE ISN'T SOMETHING YOU CAN WILL INTO EXISTENCE
+
+SWIPE
+
+**Slide 2:**
+Neuroscience shows that what you call "drive" is not a psychological trait. It is the output of a biological loop running between two systems, dopamine and testosterone. Dopamine is widely misunderstood as a pleasure chemical. It isn't. It is the chemistry of pursuit. It rises in anticipation, not arrival. It is what makes effort feel worth doing. No pursuit, no dopamine.
+
+**Slide 3:**
+Testosterone is the other half of the loop. It directly affects how sensitive the brain is to dopamine. When testosterone is high, the brain has more dopamine receptors in the regions that handle motivation and reward. When testosterone drops, those receptors thin out, and the same activity produces less signal. The brain still works. But pursuit stops feeling worth it.
+
+**Slide 4:**
+The loop runs in both directions. Chronic dopamine depletion suppresses testosterone production. Low testosterone reduces the brain's ability to feel dopamine. Modern life is engineered to break both at once — endless passive stimulation, processed food, poor sleep. And once the loop collapses, willpower cannot restore it. You can force behavior. You cannot force the chemistry that pursuit runs on.
+
+**Slide 5:**
+What rebuilds the loop is the opposite of what breaks it. Effortful pursuit: anything that demands real engagement and produces a real outcome. Strength training is one of the rare interventions that raises dopamine and testosterone in the same session, which is why it works so reliably even when nothing else does. The mechanism is simple: the brain needs to chase to produce the chemistry that makes chasing feel good.
+
+**Slide 6:**
+None of this is male-specific. Women run the same loop on different absolute amounts. They produce roughly one-tenth the testosterone men do, but it is still a critical input to their dopamine system, motivation, libido, energy, and felt sense of edge. The collapse looks the same in both sexes: flat drive, low motivation, dependence on passive stimulation. The fix works the same way. The only difference is the baseline number.
+
+**Slide 7:**
+This is why drive cannot be willed into existence. It is downstream of conditions, not effort. You don't talk yourself into having drive. You build the loop, and then drive appears as the natural output. The shift is from trying to be motivated to creating the conditions in which motivation cannot help but arise.
+
+Comment "DRIVE" and we'll send you 5 activities proven to raise dopamine and testosterone at the same time.
+
+## 2026-06-25 00:01 UTC
+
+**Slide 1:**
+10 FOODS NEUROSCIENCE CONSISTENTLY LINKS TO BETTER BRAIN HEALTH
+
+SWIPE
+
+**Slide 2:**
+1. SALMON
+THE SINGLE RICHEST DIETARY SOURCE OF DHA, THE OMEGA-3 FAT THAT MAKES UP THE LARGEST SHARE OF THE BRAIN'S STRUCTURAL FAT. HIGHER SALMON INTAKE IS CONSISTENTLY LINKED TO SLOWER COGNITIVE DECLINE, SHARPER MEMORY IN OLDER ADULTS, AND LOWER LIFETIME DEMENTIA RISK.
+
+SWIPE
+
+**Slide 3:**
+2. BLUEBERRIES
+THE DEEP BLUE PIGMENT COMES FROM ANTHOCYANINS, COMPOUNDS THAT CROSS THE BLOOD-BRAIN BARRIER AND REDUCE NEUROINFLAMMATION. REGULAR BLUEBERRY INTAKE IS CONSISTENTLY ASSOCIATED WITH MEASURABLY SLOWER COGNITIVE DECLINE.
+
+SWIPE
+
+**Slide 4:**
+3. SPINACH
+ONE OF THE HIGHEST DIETARY SOURCES OF FOLATE, VITAMIN K, AND LUTEIN, THE THREE NUTRIENTS MOST CONSISTENTLY LINKED TO BRAIN VOLUME PRESERVATION IN AGING ADULTS. A DAILY SERVING OF LEAFY GREENS IS ONE OF THE FEW DIETARY INPUTS ASSOCIATED WITH MEASURABLY YOUNGER BRAIN FUNCTION LATER IN LIFE.
+
+SWIPE
+
+**Slide 5:**
+4. WALNUTS
+THE HIGHEST PLANT SOURCE OF ALA, A PRECURSOR YOUR BRAIN PARTIALLY CONVERTS TO DHA. A DAILY HANDFUL OF WALNUTS IS CONSISTENTLY LINKED TO BETTER WORKING MEMORY AND SLOWER AGE-RELATED COGNITIVE DECLINE, THE ONLY NUT WITH THIS SPECIFIC BRAIN-BENEFIT SIGNAL.
+
+SWIPE
+
+**Slide 6:**
+5. EXTRA VIRGIN OLIVE OIL
+THE POLYPHENOLS IN REAL EXTRA VIRGIN OLIVE OIL ARE SOME OF THE MOST-REPLICATED DIETARY COMPOUNDS LINKED TO LOWER ALZHEIMER'S RISK. THE MEDITERRANEAN DIET'S BRAIN PROTECTION APPEARS TO FLOW DISPROPORTIONATELY THROUGH THIS INPUT.
+
+SWIPE
+
+**Slide 7:**
+6. EGGS
+THE YOLK SPECIFICALLY IS ONE OF THE FEW RICH FOOD SOURCES OF CHOLINE, THE PRECURSOR YOUR BRAIN USES TO MAKE ACETYLCHOLINE, THE NEUROTRANSMITTER BEHIND MEMORY AND LEARNING. A COUPLE OF EGGS A DAY COVERS MOST OF THE DAILY CHOLINE REQUIREMENT MOST ADULTS SILENTLY MISS.
+
+SWIPE
+
+**Slide 8:**
+7. DARK CHOCOLATE (70%+)
+THE COCOA FLAVANOLS IN DARK CHOCOLATE INCREASE BLOOD FLOW TO THE BRAIN WITHIN HOURS OF CONSUMPTION, SHARPENING ATTENTION AND WORKING MEMORY. LONG-TERM INTAKE IS LINKED TO SLOWER COGNITIVE AGING. HIGHER COCOA PERCENTAGE MEANS MORE FLAVANOLS, GO 70% OR ABOVE TO MAKE THE DOSE COUNT.
+
+SWIPE
+
+**Slide 9:**
+8. COFFEE
+MODERATE DAILY COFFEE INTAKE IS CONSISTENTLY LINKED TO LOWER RISK OF ALZHEIMER'S, PARKINSON'S, AND OVERALL COGNITIVE DECLINE. THE CAFFEINE, POLYPHENOLS, AND ANTIOXIDANTS ALL CONTRIBUTE, AND THE PROTECTIVE EFFECT APPEARS LARGEST WHEN THE HABIT STARTS IN MIDDLE AGE.
+
+SWIPE
+
+**Slide 10:**
+9. KEFIR
+A FERMENTED MILK DRINK WITH FAR GREATER PROBIOTIC DIVERSITY THAN YOGURT. THE BACTERIA IN KEFIR FEED YOUR GUT MICROBIOME, WHICH DIRECTLY INFLUENCES MOOD, INFLAMMATION, AND NEUROTRANSMITTER PRODUCTION.
+
+SWIPE
+
+**Slide 11:**
+10. AVOCADO
+HIGH IN MONOUNSATURATED FATS AND LUTEIN, TWO COMPOUNDS LINKED TO BETTER CEREBRAL BLOOD FLOW AND IMPROVED ATTENTION. THE BRAIN RUNS ON FAT. A HALF-AVOCADO SERVING MOST DAYS IS ENOUGH TO MAKE THE INPUT COUNT.
+
+SWIPE
+
+**Slide 12:**
+FOLLOW US TO LEARN MORE ABOUT YOUR BRAIN
+
+## 2026-06-25 16:52 UTC
+
+**Slide 1:**
+ACCORDING TO NEUROSCIENCE, ONLY 2.5% OF PEOPLE CAN ACTUALLY MULTITASK. MOST PEOPLE ARE BETTER OFF DOING ONE THING AT A TIME
+
+PSYCHONOMIC BULLETIN & REVIEW, DOI: 10.3758/PBR.17.4.479
+
+SWIPE
+
+**Slide 2:**
+A landmark study in 2010 proved that what most people call multitasking is actually rapid task-switching, and that only about 2.5% of the population can do two attention-demanding tasks at once without their performance degrading on one or both. For the other 97.5%, the brain isn't running two things in parallel. It's switching.
+
+**Slide 3:**
+The bottleneck is in the prefrontal cortex, the brain's executive control center, which processes goal-directed tasks through a single channel. When you flip between writing an email and listening to a meeting, the brain physically can't do both. It pauses one to load the other, then pauses again to switch back. Each switch carries a small cognitive tax.
+
+**Slide 4:**
+The taxes compound fast. Reaction times slow. Memory accuracy drops. Drivers on phone calls miss up to half the visual information they would have noticed otherwise, and don't realize they're missing it. The cost shows up anywhere two attention-demanding tasks share the same channel.
+
+**Slide 5:**
+The most useful finding in the broader literature is that the people who multitask most often are the worst at it. Heavy media multitaskers score lower on attention filtering, task switching, and working memory than people who multitask less. The confidence that you're an exception is, statistically, the strongest signal that you're not.
+
+**Slide 6:**
+The 2.5% who can genuinely run two tasks in parallel aren't just better at the individual tasks. It's a separate cognitive ability, an executive-attention trait that stays stable across months and generalizes to other dual-task combinations. Which means it's not something you can train into. You either have it or you don't.
+
+**Slide 7:**
+For 97.5% of people, single-tasking isn't the slow path. It's the high-performance path. The brain wasn't built to run two attention-demanding tasks in parallel. It was built to do one well. Doing one thing at a time is what doing it well looks like.
+
+Follow @neuroglobe to learn more about the brain.
